@@ -6,12 +6,7 @@ body {
   font-size: 2em;
   font-family: 'Open Sans', sans-serif;
   height: 100%;
-  padding-top: 90px;
-}
-@media (max-width: 981px) {
-  body {
-    padding-top: 0px;
-  }
+  padding-top: 100px;
 }
 
 div.navbar.navbar-inverse a {
@@ -28,7 +23,7 @@ div.navbar.navbar-inverse a:hover {
 }
 
 .navbar-inverse {
-  font-size: 1.5em;
+  font-size: 1.0em;
   color: #800000;
   background-color: #fff;
   border-width: 0px;
