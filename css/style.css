@@ -1,0 +1,76 @@
+html {
+  height: 100%
+}
+
+body {
+  font-size: 2em;
+  padding-top: 75px;
+  font-family: 'Open Sans', sans-serif;
+  height: 100%
+}
+
+div.navbar.navbar-inverse a {
+  font-family: 'Alex Brush', cursive;
+  color: #800000;
+}
+
+div.navbar.navbar-inverse a:hover {
+  color: #006400
+}
+
+.navbar-brand {
+  font-size: 1.5em;
+}
+
+.navbar-inverse {
+  font-size: 1.5em;
+  color: #800000;
+  background-color: #fff;
+  border-width: 0px;
+}
+
+div.navbar-collapse {
+  border-bottom: 1px solid;
+}
+
+.navbar-inverse .navbar-collapse {
+  border-color: #006400;
+}
+
+.starter-template {
+  padding: 40px 15px;
+  text-align: center;
+}
+
+div#header, h1, h2, h3 {
+  font-family: 'Alex Brush', cursive;
+}
+
+div.container h2 {
+  text-align: center;
+}
+
+div.model h1 {
+  text-align: center
+}
+
+a, a:link, a:visited, h1, h2, h3 {
+  color: #800000;
+  text-decoration: none
+}
+
+a:hover, p#powered a:hover {
+  color: #006400;
+  text-decoration: none
+}
+
+::selection {
+  color: #fff;
+  background-color: #800000
+}
+
+::-moz-selection {
+  color: #fff;
+  background-color: #800000
+}
+
