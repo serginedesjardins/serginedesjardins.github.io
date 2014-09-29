@@ -4,7 +4,7 @@ title: Acceuil
 permalink: /
 ---
 
-<img style='float:right;' src='images/2isa2-small.jpg' alt='photo'>
+<img style='float:right; padding: 10px' src='images/2isa2-small.jpg' alt='photo'>
 
 J'ai eu le coup de foudre pour les livres quand, la première fois, j'ai posé
 les yeux sur la petite bibliothèque de l'école du Cap-à-la-Baleine où j'ai passé
