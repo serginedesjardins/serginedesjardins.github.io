@@ -33,9 +33,6 @@ par France/Loisirs, en 2010. Il le sera de nouveau en septembre 2012 par Guy
 St-Jean dans la collection Focus (édition en gros caractères) et, en 2013, en
 format poche par la maison d'édition française Pocket.
 
-Vous pouvez entendre mon entretien avec Joël Le Bigot
-[ici](http://www.radio-canada.ca/emissions/samedi_dimanche/2009-2010/chronique.asp?idChronique=110578).
-
 En 2011, j'ai reçu [le prix littéraire Jovette
 Bernier](http://fr.wikipedia.org/wiki/Prix_Jovette-
 Bernier%E2%80%94Ville_de_Rimouski) pour la biographie de Robertine Barry.
@@ -43,4 +40,7 @@ Bernier%E2%80%94Ville_de_Rimouski) pour la biographie de Robertine Barry.
 Je suis lauréate du [prix littéraire international indépendant Marguerite
 Yourcenar](http://www.punctumliteraryagency.eu/#!prix-fr/cczd) pour mon roman
 Marie Major publié en 2006.
+
+Vous pouvez entendre mon entretien avec Joël Le Bigot
+[ici](http://www.radio-canada.ca/emissions/samedi_dimanche/2009-2010/chronique.asp?idChronique=110578).
 
