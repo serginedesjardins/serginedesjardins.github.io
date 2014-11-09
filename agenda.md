@@ -8,6 +8,9 @@ permalink: /agenda/
 
 ## 2014
 
+Salon du livre de Rimouski. Dimanche le 9 novembre à 13h : entrevue
+avec Annie Landreville. Séances de dédicaces : 11h à midi. 14 à 15h.
+
 Dans le cadre du Congrès mondial acadien, conférence, le 17 août, à
 Saint-André au Nouveau-Brunswick.
 
