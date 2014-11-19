@@ -34,7 +34,7 @@ lire le tome 2. » - Alexandra Suchecki.
 « Chère romancière. Merci pour une belle page de notre histoire dans ISA et aussi chez Marie Major. Je suis membre de AFROY-A ou j'ai vu l'annonce de vos oeuvres littéraires. Je me réjouis de reconnaître le caractère des ROY dans cette tranche de nos ancêtres. Au plaisir de lire le 2me tome de ISA. Grand merci. » -  Édouard Banville.
 
 
-"Très chère madame Sergine. Je viens, à l'instant même, de terminer le tome 2 de Isa.  Je suis toute retournée, touchée, émue.  À deux occasions, j'ai pleuré ( c'est seulement la deuxième fois que je pleure, suite à une lecture ).  Pourtant, des livres j'en lis "à la tonne". J'ai appris énormément sur cette tragédie; les références auxquelles vous faites allusion apportent de l'authenticité à votre récit. Madame, les mots me manquent pour vous dire tout le bonheur, le plaisir que vous m'avez procurés. Vous faites partie de mes auteurs préférés et ai hâte de vous lire à nouveau." Ginette Lavallée.
+« Très chère madame Sergine. Je viens, à l'instant même, de terminer le tome 2 de Isa.  Je suis toute retournée, touchée, émue.  À deux occasions, j'ai pleuré ( c'est seulement la deuxième fois que je pleure, suite à une lecture ).  Pourtant, des livres j'en lis "à la tonne". J'ai appris énormément sur cette tragédie; les références auxquelles vous faites allusion apportent de l'authenticité à votre récit. Madame, les mots me manquent pour vous dire tout le bonheur, le plaisir que vous m'avez procurés. Vous faites partie de mes auteurs préférés et ai hâte de vous lire à nouveau. » - Ginette Lavallée.
 
 # Concernant Robertine Barry:
 
