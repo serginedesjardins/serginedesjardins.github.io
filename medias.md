@@ -82,7 +82,7 @@ Sergine Desjardins manifeste à l'évidence que son entreprise ne vise pas qu'à
 ses 900 pages, à raconter la condition des femmes et le Québec, depuis le
 milieu du X1Xe siècle jusqu'au début du XXe, en prenant Robertine comme
 emblématique, exemplaire et d'opposition. (...) Bel ouvrage, que bibliographie
-et index complètent fort bien. 4.5/ 5.0.» - Rénald Bérubé. Lettres québécoises.
+et index complètent fort bien. 4.5/ 5.0.» - Renald Bérubé. Lettres québécoises.
 Automne 2011.
 
 « Robertine Barry s'est appliquée à stigmatiser le côté sombre du mariage,
