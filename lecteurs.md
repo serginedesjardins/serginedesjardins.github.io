@@ -24,6 +24,18 @@ aussi celle de ses soeurs et de sa famille. Je suis vraiment contente d'être
 tombée sur vous et vos livres.Je suis impatiente et j'ai vraiment hâte de
 lire le tome 2. » - Alexandra Suchecki.
 
+« Mille bravos, pour vos deux livres de Isa. J'ai dévoré le premier, et je suis en train de goûter au deuxième, qui semble aussi bon que le tome 1. Merci de me faire passer de si beaux moments en vous lisant. J'adore l'histoire de notre pays. Je suis généalogiste, donc tout ce qui se rattache à nous me passionne. Je n'ai jamais lu un livre parlant de la lèpre ici au canada. On s'imagine que cela ne nous atteint pas. J'étais si heureuse de pouvoir vous lire à nouveau. Car j'ai lu Marie Major, il y a plusieurs années. Mille mercis et poursuivez votre beau travail, vous me passionnez. » - Lucie St-Germain
+
+« J'ai terminé ce matin la lecture du deuxième tome de ton roman Isa, l'île de l'ermite. Je veux d'abord souligner le courage de l'auteure pour avoir abordé un sujet aussi troublant et pathétique que la léproserie de Tracadie,dont j'ignorais totalement l'existence, croyant que la lèpre, cette terrible maladie, ne se rencontrait essentiellement que dans les pays chauds du pourtour de la méditerranée... Les conditions de vie sordides des lépreux et les perceptions médicales et sociales particulièrement cruelles de l'époque exigent certainement beaucoup d'empathie et de compassion de la part du lecteur...Mais la rédemption des principaux personnages et les promesses de vie heureuse qui s'en suivent allègent heureusement le tout... J'ai pour ma part beaucoup de plaisir à connaître les valeurs de l'auteure à travers les réflexions de ses personnages, valeurs, idées et sentiments qui me rejoignent bien souvent... Merci encore une fois Sergine pour ce travail colossal empreint d'humanité. » - Yvonnick Roy.
+ 
+
+« Je viens de terminer la lecture de Isa. Un gros merci pour cette page d'histoire et merci pour toutes les recherches que vous avez faites. C'est  un beau cadeau pour les amoureux de l'histoire. » - Marie Sirois
+
+« Chère romancière. Merci pour une belle page de notre histoire dans ISA et aussi chez Marie Major. Je suis membre de AFROY-A ou j'ai vu l'annonce de vos oeuvres littéraires. Je me réjouis de reconnaître le caractère des ROY dans cette tranche de nos ancêtres. Au plaisir de lire le 2me tome de ISA. Grand merci. » -  Édouard Banville.
+
+
+"Très chère madame Sergine. Je viens, à l'instant même, de terminer le tome 2 de Isa.  Je suis toute retournée, touchée, émue.  À deux occasions, j'ai pleuré ( c'est seulement la deuxième fois que je pleure, suite à une lecture ).  Pourtant, des livres j'en lis "à la tonne". J'ai appris énormément sur cette tragédie; les références auxquelles vous faites allusion apportent de l'authenticité à votre récit. Madame, les mots me manquent pour vous dire tout le bonheur, le plaisir que vous m'avez procurés. Vous faites partie de mes auteurs préférés et ai hâte de vous lire à nouveau." Ginette Lavallée.
+
 # Concernant Robertine Barry:
 
 « Je termine à l'instant même la lecture du tome 2 de "Robertine Barry" et je
