@@ -11,7 +11,7 @@ body {
 
 div.navbar.navbar-inverse a {
   font-family: 'Alex Brush', cursive;
-  color: #800000;
+  color: #D62D2D;
 }
 
 div.navbar.navbar-inverse a:hover {
@@ -23,8 +23,8 @@ div.navbar.navbar-inverse a:hover {
 }
 
 .navbar-inverse {
-  font-size: 1.0em;
-  color: #800000;
+  font-size: 1.2em;
+  color: #D62D2D;
   background-color: #fff;
   border-width: 0px;
 }
@@ -34,7 +34,7 @@ div.navbar-collapse {
 }
 
 .navbar-inverse .navbar-collapse {
-  border-color: #006400;
+  border-color: #D62D2D;
 }
 
 .starter-template {
@@ -55,7 +55,7 @@ div.model h1 {
 }
 
 a, a:link, a:visited, h1, h2, h3 {
-  color: #800000;
+  color: #D62D2D;
   text-decoration: none
 }
 
@@ -66,11 +66,11 @@ a:hover, p#powered a:hover {
 
 ::selection {
   color: #fff;
-  background-color: #800000
+  background-color: #D62D2D
 }
 
 ::-moz-selection {
   color: #fff;
-  background-color: #800000
+  background-color: #D62D2D
 }
 
