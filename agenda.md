@@ -6,6 +6,15 @@ permalink: /agenda/
 
 # Calendrier des activités
 
+## 2015
+
+Vendredi, 27 mars : 18:30. Salon du livre de Trois-Rivières : Je participe à une causerie avec les auteurs Claudine Bourbonnais, Hervé Gagnon et Anne-Marie Sicotte. Animatrice : Louise Hamel. Espace Radio-Canada.
+
+Samedi, 28 mars, de midi 30 à 13 h. : entrevue d'auteure. Intervieweuse : Rollande Lambert.
+
+Dédicaces : Vendredi : 19:30 à 21 h. Samedi, 11:30 à midi trente et 14 à 15:30. 
+
+
 ## 2014
 
 Salon du livre de Rimouski. Dimanche le 9 novembre à 13h : entrevue
