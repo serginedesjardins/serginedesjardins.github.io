@@ -4,9 +4,11 @@ title: Agenda
 permalink: /agenda/
 ---
 
-# Calendrier des activités
+# Calendrier des activités. 
 
 ## 2015
+
+Salon du livre de Québec, séances de dédicaces, stand 101 : Vendredi 10 avril : 15 à 16 et  19:30 à 20:30. Samedi, 10 à 11 h et 18 à 19. Dimanche. 11 à 12 et 13 à 14.
 
 Vendredi, 27 mars : 18:30. Salon du livre de Trois-Rivières : Je participe à une causerie avec les auteurs Claudine Bourbonnais, Hervé Gagnon et Anne-Marie Sicotte. Animatrice : Louise Hamel. Espace Radio-Canada.
 
