@@ -6,6 +6,7 @@ permalink: /dis/
 
 <img src='../images/PrixJovetteBernier2.jpg' alt='photo'>
 *Crédit photo: Michel Dompierre.*
+**2014**: Finaliste, prix Artiste Ville de Rimouski.
 
 **2013**: Lauréate du <a
 href="http://www.punctumliteraryagency.eu/#!prix-fr/cczd">Prix littéraire
