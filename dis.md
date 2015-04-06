@@ -16,7 +16,7 @@ en 2006 et édité chez Pocket en 2013</a>.
 
 **2012**: Boursière du Conseil des arts et des lettres du Québec pour la rédaction d'un roman.
 
-**2011**: Prix Jovette Bernier, ville de Rimouski, pour la biographie de Robertine Barry.
+**2011**: Prix Jovette Bernier pour la biographie de Robertine Barry.
 
 **2011**: Invitée d'honneur au Salon du livre de Rimouski.
 
