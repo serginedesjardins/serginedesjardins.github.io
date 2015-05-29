@@ -4,7 +4,7 @@ title: Acceuil
 permalink: /
 ---
 
-<img style='float:right; padding: 10px' src='images/2isa2-small.jpg' alt='photo'>
+<img style='float:right; padding: 10px' src='images/prix2015.jpg' alt='photo'>
 
 Détentrice d’une maîtrise ès arts (Éthique), Sergine Desjardins a collaboré à deux ouvrages et publié, en 1993, un essai, Médecins & Sages-femmes. Les enjeux d’un débat qui n’en finit plus. Avant de consacrer tout son temps à l’écriture, elle a notamment été assistante de recherches, a fondé un organisme venant en aide aux jeunes et a exercé le métier de journaliste pigiste.
 
