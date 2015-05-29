@@ -8,7 +8,7 @@ permalink: /
 
 Détentrice d’une maîtrise ès arts (Éthique), Sergine Desjardins a collaboré à deux ouvrages et publié, en 1993, un essai, Médecins & Sages-femmes. Les enjeux d’un débat qui n’en finit plus. Avant de consacrer tout son temps à l’écriture, elle a notamment été assistante de recherches, a fondé un organisme venant en aide aux jeunes et a exercé le métier de journaliste pigiste.
 
-Son premier roman, Marie Major, est inspiré de son ancêtre, une fille du roi dont l’époux, Antoine Roy dit Desjardins, a été assassiné dans le lit de sa maîtresse. Ce roman historique a inspiré un épisode de la série télévisée Canada en amour et a été couronné par le prix littéraire international indépendant Marguerite Yourcenar 2013.
+Son premier roman, Marie Major, est inspiré de son ancêtre, une fille du roi dont l’époux, Antoine Roy dit Desjardins, a été assassiné dans le lit de sa maîtresse. Ce roman historique a inspiré un épisode de la série télévisée Canada en amour et a été couronné par le [prix littéraire international indépendant Marguerite Yourcenar 2013](http://www.punctumliteraryagency.eu/#!prix-fr/ccz).
 
 Elle a ensuite écrit la biographie de Robertine Barry, première femme journaliste canadienne-française et pionnière dans la défense des droits des femmes. Cette biographie en deux tomes lui a mérité le Prix Jovette Bernier en 2011. Cette même année, elle fut l’une des invités d’honneur du Salon du livre de Rimouski.
 
