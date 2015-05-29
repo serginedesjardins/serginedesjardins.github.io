@@ -4,8 +4,7 @@ title: Prix
 permalink: /dis/
 ---
 
-<img src='../images/PrixJovetteBernier2.jpg' alt='photo'>
-*Crédit photo: Michel Dompierre.*
+<img src='../images/prixartiste.jpg' alt='photo'>
 
 **2014**: Finaliste, prix Artiste Ville de Rimouski.
 
@@ -19,4 +18,7 @@ en 2006 et édité chez Pocket en 2013</a>.
 **2011**: Prix Jovette Bernier pour la biographie de Robertine Barry.
 
 **2011**: Invitée d'honneur au Salon du livre de Rimouski.
+
+<img src='../images/PrixJovetteBernier2.jpg' alt='photo'>
+*Crédit photo: Michel Dompierre.*
 
