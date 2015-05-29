@@ -6,33 +6,18 @@ permalink: /
 
 <img style='float:right; padding: 10px' src='images/2isa2-small.jpg' alt='photo'>
 
-J'ai eu le coup de foudre pour les livres quand, la première fois, j'ai posé
-les yeux sur la petite bibliothèque de l'école du Cap-à-la-Baleine où j'ai passé
-mon enfance. J'avais quatre ans. Depuis, plusieurs centaines d'écrivains et
-d'écrivaines ont grandement enrichi ma vie. D'être devenue à mon tour une
-auteure, à l'aube de la cinquantaine, me comble de joie, même si c'est un
-travail beaucoup plus exigeant que ne le croient plusieurs. Outre le bonheur de
-voir mes oeuvres publiées, j'ai le privilège de recevoir de nombreuses marques
-d'affection et d'estime de mes lecteurs et lectrices. Comme l'a écrit
-pertinemment Robertine Barry, « ils sont merveilleux de force et d'affection,
-ces liens que l'on forme avec des personnes que l'on ne connaît pas. C'est un
-des plaisirs de la vie de l'écrivain que de sentir autour de lui ces courants
-sympathiques qui le consolent comme autant de génies bienfaisants, mais
-invisibles »
+Détentrice d’une maîtrise ès arts (Éthique), Sergine Desjardins a collaboré à deux ouvrages et publié, en 1993, un essai, Médecins & Sages-femmes. Les enjeux d’un débat qui n’en finit plus. Avant de consacrer tout son temps à l’écriture, elle a notamment été assistante de recherches, a fondé un organisme venant en aide aux jeunes et a exercé le métier de journaliste pigiste.
 
-Je suis toujours très heureuse de recevoir des mails de mes
-lecteurs et lectrices. Il est possible aussi d'obtenir un exemplaire dédicacé de Marie Major. (25$, incluant les frais
-de poste si vous habitez au Québec).
+Son premier roman, Marie Major, est inspiré de son ancêtre, une fille du roi dont l’époux, Antoine Roy dit Desjardins, a été assassiné dans le lit de sa maîtresse. Ce roman historique a inspiré un épisode de la série télévisée Canada en amour et a été couronné par le prix littéraire international indépendant Marguerite Yourcenar 2013.
 
-Marie Major a plusieurs vies : ce roman a été édité par Guy St-Jean éditeur en 2006 et 2008 ainsi que dans la collection Focus en 2012. Il a été édité aussi chez Québec/Loisirs, France/Loisirs et Pocket. 
+Elle a ensuite écrit la biographie de Robertine Barry, première femme journaliste canadienne-française et pionnière dans la défense des droits des femmes. Cette biographie en deux tomes lui a mérité le Prix Jovette Bernier en 2011. Cette même année, elle fut l’une des invités d’honneur du Salon du livre de Rimouski.
 
-Je suis lauréate [du prix littéraire Jovette
-Bernier](http://fr.wikipedia.org/wiki/Prix_Jovette-
-Bernier%E2%80%94Ville_de_Rimouski) pour la biographie de Robertine Barry.
+En 2012, elle fut l’une des vingt auteurs choisis par l’UNEQ et l’ACFAS pour rédiger un texte inspiré d’une recherche scientifique.
 
-Mon roman Marie Major a été courronné par le [prix littéraire international indépendant Marguerite
-Yourcenar](http://www.punctumliteraryagency.eu/#!prix-fr/ccz )
+En 2013, elle a reçu une bourse du Conseil des arts du Québec afin d’écrire son diptyque Isa ayant pour toile de fond l’épidémie de lèpre au Nouveau-Brunswick au 19e siècle. Les deux tomes de ce roman ont été publiés en 2014.
 
-Vous pouvez entendre mon entretien avec Joël Le Bigot
-[ici](http://www.radio-canada.ca/emissions/samedi_dimanche/2009-2010/chronique.asp?idChronique=110578).
+En 2015, elle a reçu le prix Artiste de la ville de Rimouski où elle habite.
 
+Depuis 2006, elle participe à de nombreuses activités littéraires et donne des conférences dont les titres sont : 1. Les filles du roi et leur époque. 2. Robertine Barry et son époque. 3. Tracadie au temps de la lèpre.
+
+Le dictionnaire Les 50 femmes les plus remarquables auquel elle a collaboré sera publié à l’automne 2015. Sa page est consacrée à Robertine Barry.
