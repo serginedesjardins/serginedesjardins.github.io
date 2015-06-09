@@ -27,6 +27,7 @@ permalink: /pub/
 ## Isa
 
 <img style='float:left; padding: 10px;' src='../images/isa1.jpg' alt="Couvertude de Isa 1"/>
+<img style='float:left; padding: 10px;' src='../images/C1_Isa_t2_provisoire2_4.jpg' alt="Couvertude de Isa 2"/>
 
 *Communiqué de presse*: L'auteure du populaire et primé Marie Major offre un
 nouveau récit mettant en lumière un pan peu connu de notre histoire.  Ainsi,
@@ -74,6 +75,7 @@ Barry.
 ## Marie Major
 
 <img style='float:left; padding: 10px' src="../images/couv-mm.png" alt="Couvertude de Marie Major"/>
+<img style='float:left; padding: 10px' src="../images/DESJARDINS_Marie_Major.jpg" alt="Couvertude de Marie Major (Pocket)"/>
   
 *Communiqué de presse*: Libertinage, meurtre, procès, emprisonnement,
 injustice; une histoire qui a tout des romans policiers modernes mais qui se
