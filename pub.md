@@ -27,7 +27,7 @@ permalink: /pub/
 ## Isa
 
 <img style='float:left; padding: 10px;' src='../images/isa1.jpg' alt="Couvertude de Isa 1"/>
-<img style='float:left; padding: 10px;' src='../images/C1_Isa_t2_provisoire2_4.jpg' alt="Couvertude de Isa 2"/>
+<img style='float:left; padding: 10px;' src='../images/isa2.jpg' alt="Couvertude de Isa 2"/>
 
 *Communiqué de presse*: L'auteure du populaire et primé Marie Major offre un
 nouveau récit mettant en lumière un pan peu connu de notre histoire.  Ainsi,
