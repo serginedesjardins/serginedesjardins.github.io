@@ -21,7 +21,7 @@ contraire : je veux le lire au plus vite, puisque je suis si impatiente de
 savoir ce qui va arriver à Isa et à Fanny etc... Je trouve le livre très
 touchant et j'aime le fait que ce n'est pas juste l'histoire d'Isa, mais
 aussi celle de ses soeurs et de sa famille. Je suis vraiment contente d'être
-tombée sur vous et vos livres.Je suis impatiente et j'ai vraiment hâte de
+tombée sur vous et vos livres. Je suis impatiente et j'ai vraiment hâte de
 lire le tome 2. » - Alexandra Suchecki.
 
 « Mille bravos, pour vos deux livres de Isa. J'ai dévoré le premier, et je suis en train de goûter au deuxième, qui semble aussi bon que le tome 1. Merci de me faire passer de si beaux moments en vous lisant. J'adore l'histoire de notre pays. Je suis généalogiste, donc tout ce qui se rattache à nous me passionne. Je n'ai jamais lu un livre parlant de la lèpre ici au canada. On s'imagine que cela ne nous atteint pas. J'étais si heureuse de pouvoir vous lire à nouveau. Car j'ai lu Marie Major, il y a plusieurs années. Mille mercis et poursuivez votre beau travail, vous me passionnez. » - Lucie St-Germain
