@@ -6,6 +6,8 @@ permalink: /dis/
 
 <img src='../images/prixartiste.jpg' alt='photo'>
 
+**2015**: Lauréate, prix artiste Ville de Rimouski
+
 **2014**: Finaliste, prix Artiste Ville de Rimouski.
 
 **2013**: Lauréate du <a
