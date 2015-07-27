@@ -15,7 +15,7 @@ href="http://www.punctumliteraryagency.eu/#!prix-fr/cczd">Prix littéraire
 international indépendant Marguerite Yourcenar pour le roman Marie Major publié
 en 2006 et édité chez Pocket en 2013</a>.
 
-**2012**: Boursière du Conseil des arts et des lettres du Québec pour la rédaction d'un roman.
+**2012**: Boursière du Conseil des arts et des lettres du Québec pour la rédaction de roman Isa.
 
 **2011**: Prix Jovette Bernier pour la biographie de Robertine Barry.
 
