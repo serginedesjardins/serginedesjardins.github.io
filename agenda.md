@@ -8,11 +8,14 @@ permalink: /agenda/
 
 ## 2015
 
-2 novembre à 19 h : conférence. Bibliothèque Saint-Narcisse.
 
 10 novembre à 9 h. 30 : rencontre d'auteure, Café le Périscope, Pointe-au-Père. Hôte : Retraite Action Rimouski.
 
+2 novembre à 19 h : conférence. Bibliothèque Saint-Narcisse.
+
 24 octobre à 15 h. 30 : thé littéraire à la Bibliothèque de Matane. Cette rencontre d'auteure sera suivie d'un vin d'honneur regroupant les auteurs et le public.
+
+Entre le 17 et le 19 octobre (détails à venir ), je participe à la Tournée d'auteurs Gaspésie, Îles-de-la-Madeleine.
 
 Du 9 au 11 octobre, Salon du livre de la Péninsule Acadienne. Vendredi, 9 octobre de 13 à 14 h, conférence à la Bibliothèque Laval-Goupil de Shippagan: Tracadie au temps de la lèpre. Samedi, de 15 h. 30 à 16 h : entrevue, Place des auteurs au Salon de Shippagan. Dimanche, de 9 h. 30 à 11 h. je suis l'une des auteurs invités au Brunch littéraire. Dédicaces : vendredi de 15 h à 16 h. Samedi de 16 à 17. Dimanche de 11 à 12.
 
