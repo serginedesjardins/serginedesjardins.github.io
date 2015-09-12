@@ -12,6 +12,8 @@ permalink: /agenda/
 
 10 novembre à 9 h. 30 : rencontre d'auteure, Café le Périscope, Pointe-au-Père. Hôte : Retraite Action Rimouski.
 
+24 octobre à 15 h. 30 : thé littéraire à la Bibliothèque de Matane. Cette rencontre d'auteure sera suivie d'un vin d'honneur regroupant les auteurs et le public.
+
 11 juin, 19 h à la Maison Lamontagne, 707 boulevard du Rivage, Rimouski : conférence Les filles du roy et leur époque. Il sera question notamment de la vie à la Salpêtrière, de la dure traversée, des mariages de raison, des procédures judiciaires en Nouvelle-France, de la manière dont étaient traitées les femmes adultères et celles dont l'époux était infidèle, des esclaves amérindiens etc. L'activité sera suivie de discussion. Un léger goûter sera servi. L'activité est gratuite pour les membres de la SRP. 3$ pour les non-membres.
 
 Vendredi, 27 mars : 18:30. Salon du livre de Trois-Rivières : Je participe à une causerie avec les auteurs Claudine Bourbonnais, Hervé Gagnon et Anne-Marie Sicotte. Animatrice : Louise Hamel. Espace Radio-Canada. Samedi, 28 mars, de midi 30 à 13 h. : entrevue d'auteure. Intervieweuse : Rollande Lambert. Dédicaces : Vendredi : 19:30 à 21 h. Samedi, 11:30 à midi trente et 14 à 15:30. 
