@@ -8,6 +8,8 @@ permalink: /agenda/
 
 ## 2015
 
+2 novembre à 19 h : conférence. Bibliothèque Saint-Narcisse.
+
 10 novembre à 9 h. 30 : rencontre d'auteure, Café le Périscope, Pointe-au-Père. Hôte : Retraite Action Rimouski.
 
 11 juin, 19 h à la Maison Lamontagne, 707 boulevard du Rivage, Rimouski : conférence Les filles du roy et leur époque. Il sera question notamment de la vie à la Salpêtrière, de la dure traversée, des mariages de raison, des procédures judiciaires en Nouvelle-France, de la manière dont étaient traitées les femmes adultères et celles dont l'époux était infidèle, des esclaves amérindiens etc. L'activité sera suivie de discussion. Un léger goûter sera servi. L'activité est gratuite pour les membres de la SRP. 3$ pour les non-membres.
