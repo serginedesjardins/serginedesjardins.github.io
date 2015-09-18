@@ -9,7 +9,7 @@ permalink: /agenda/
 ## 2015
 
 
-10 novembre à 9 h. 30 : rencontre d'auteure, Café le Périscope, Pointe-au-Père. Hôte : Retraite Action Rimouski.
+10 novembre à 9 h. 30 : rencontre d'auteure. Lieu : Suzie Quimper traiteur, 180 Évêché Ouest, local 100. Hôte : Retraite Action Rimouski.
 
 2 novembre à 19 h : conférence. Bibliothèque Saint-Narcisse.
 
