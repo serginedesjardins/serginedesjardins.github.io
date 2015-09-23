@@ -14,13 +14,13 @@ Elle a ensuite écrit la biographie de Robertine Barry, première femme journali
 
 En 2012, elle fut l’une des vingt auteurs choisis par l’UNEQ et l’ACFAS pour rédiger un texte inspiré d’une recherche scientifique.
 
-En 2013, elle a reçu une bourse du Conseil des arts du Québec afin d’écrire son diptyque Isa ayant pour toile de fond l’épidémie de lèpre au Nouveau-Brunswick au 19e siècle. Les deux tomes de ce roman ont été publiés en 2014.
+En 2013, elle a reçu une bourse du Conseil des arts du Québec afin d’écrire son diptyque Isa ayant pour toile de fond l’épidémie de lèpre au Nouveau-Brunswick au 19e siècle. Les deux tomes de ce roman, publiés en 2014, ont été au palmarès Gaspard pendant huit semaines.
 
 En 2015, elle a reçu le prix Artiste de la ville de Rimouski où elle habite.
 
 Depuis 2006, elle participe à de nombreuses activités littéraires et donne des conférences dont les titres sont : 1. Les filles du roi et leur époque. 2. Robertine Barry et son époque. 3. Tracadie au temps de la lèpre.
 
-Le dictionnaire Les 50 femmes les plus remarquables auquel elle a collaboré sera publié à l’automne 2015. Sa page est consacrée à Robertine Barry.
+Le dictionnaire Les 50 femmes les plus remarquables auquel elle a collaboré sera publié à l’automne 2016. Sa page est consacrée à Robertine Barry.
 
 Elle est membre de l'UNEQ
 
