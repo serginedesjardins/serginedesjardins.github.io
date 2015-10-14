@@ -50,8 +50,11 @@ de courage et d'espoir." Suggestions de lectures pour les vacances d'été. » -
 
 « Premier tome d’un diptyque historique prenant, L’île des exclus tiendra les
 lecteurs en haleine du début à la fin puisque profondément attachés à Isa, ils
-la suivront dans son dangereux et injuste périple. » 
+la suivront dans son dangereux et injuste périple. »
 - [Christiane Dubreuil](http://info-culture.biz)
+
+« On l’attendait, et bien, il est arrivé, le tome 2, d’Isa, l’île des exclus, qui nous raconte presque une histoire vraie, inspirés de faits réels, qui sont bien détaillés dans l’ouvrage. Nous sommes en 1847. Alors que les lépreux sont transférés de l’île Sheldrake au nouveau lazaret de Tracadie, Isa, toujours bien portante, perd espoir. Bien que la maladie ne semble avoir aucune emprise sur la jeune femme, l’isolement, et un pénible quotidien, l’affectent au plus profond d’elle-même. Sa mère, Charlotte, est prête à tout pour sauver sa fille. Ses sœurs, en cette époque d’interdits, de silence et de jugement divin, tentent elles aussi de surmonter tant bien que mal les épreuves : Fanny, l’aînée, dont la petite Élizabeth a été enlevée et Juliette, la benjamine, qui rêve d’étudier la médecine. (…) Dernier tome de la série Isa, L’île de l’ermite nous entraîne dans la noirceur d’un autre âge, pourtant pas si lointain, ou injustice et adversité côtoient espoir et courage. Un bon roman, bien écrit, sur une réalité qu’on ne pensait pas avoir eu au Canada. On l’a lu en vacances, sur les bords du fleuve, justement une partie de l’histoire s’y déroule, le cadre était parfait. Il a fait l'unanimité de notre comité mixte de lecture. » André Maccabé, Cité Boomers, 14 août 2014.
+
 
 # Critiques de Robertine Barry
 
