@@ -11,7 +11,7 @@ permalink: /agenda/
 
 10 novembre à 9 h. 30 : rencontre d'auteure. Lieu : Suzie Quimper traiteur, 180 Évêché Ouest, local 100. Hôte : Retraite Action Rimouski.
 
-2 novembre à 19 h : conférence. Bibliothèque Saint-Narcisse.
+Salon du livre de Rimouski : jeudi 5 novembre, 19 h, conférence à la Bibliothèque de Saint-Narcisse. Vendredi, entre 13 et 15 h, entrevue et dédicaces de 14 à 15 h. Dimanche, de 14 à 15 h, table ronde sur le roman historique. Ensuite, dédicaces jusqu’à la fermeture du Salon.
 
 24 octobre à 15 h. 30 : thé littéraire à la Bibliothèque de Matane. Cette rencontre d'auteure sera suivie d'un vin d'honneur regroupant les auteurs et le public.
 
