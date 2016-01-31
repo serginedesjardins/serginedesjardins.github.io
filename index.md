@@ -17,7 +17,7 @@ dont l’époux, Antoine Roy dit Desjardins, a été assassiné dans le lit de s
 maîtresse. Ce roman historique a inspiré un épisode de la série télévisée
 Canada en amour et a été couronné par le [prix littéraire international
 indépendant Marguerite Yourcenar
-2013](http://www.punctumliteraryagency.eu/#!prix-fr/ccz).
+2013](http://ici.radio-canada.ca/nouvelles/arts_et_spectacles/2013/08/14/001-sergine-desjardins-recoit-un-prix-litteraire.shtml).
 
 Elle a ensuite écrit la biographie de Robertine Barry, première femme
 journaliste canadienne-française et pionnière dans la défense des droits des
