@@ -17,7 +17,7 @@ dont l’époux, Antoine Roy dit Desjardins, a été assassiné dans le lit de s
 maîtresse. Ce roman historique a inspiré un épisode de la série télévisée
 Canada en amour et a été couronné par le [prix littéraire international
 indépendant Marguerite Yourcenar
-2013](http://ici.radio-canada.ca/nouvelles/arts_et_spectacles/2013/08/14/001-sergine-desjardins-recoit-un-prix-litteraire.shtml).
+2013](http://ici.radio-canada.ca/nouvelles/arts_et_spectacles/2013/08/14/001-sergine-desjardins-recoit-un-prix-litteraire.shtml). Ce roman a aussi été publié chez France-Loisirs, Québec-Loisirs et Pocket.
 
 Elle a ensuite écrit la biographie de Robertine Barry, première femme
 journaliste canadienne-française et pionnière dans la défense des droits des
@@ -31,7 +31,7 @@ rédiger un texte inspiré d’une recherche scientifique.
 En 2013, elle a reçu une bourse du Conseil des arts du Québec afin d’écrire son
 diptyque Isa ayant pour toile de fond l’épidémie de lèpre au Nouveau-Brunswick
 au 19e siècle. Les deux tomes de ce roman, publiés en 2014, ont été au palmarès
-Gaspard pendant huit semaines.
+Gaspard pendant huit semaines. Ce dyptique a aussi été publié chez Québec-Loisirs.
 
 En 2015, elle a reçu le prix Artiste de la ville de Rimouski où elle habite.
 
