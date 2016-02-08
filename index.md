@@ -31,7 +31,7 @@ rédiger un texte inspiré d’une recherche scientifique.
 En 2013, elle a reçu une bourse du Conseil des arts du Québec afin d’écrire son
 diptyque Isa ayant pour toile de fond l’épidémie de lèpre au Nouveau-Brunswick
 au 19e siècle. Les deux tomes de ce roman, publiés en 2014, ont été au palmarès
-Gaspard pendant huit semaines. Ce dyptique a aussi été publié chez Québec-Loisirs.
+Gaspard pendant huit semaines. Ce diptyque a aussi été publié chez Québec-Loisirs.
 
 En 2015, elle a reçu le prix Artiste de la ville de Rimouski où elle habite.
 
