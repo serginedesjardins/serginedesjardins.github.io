@@ -6,13 +6,13 @@ permalink: /pub/
 
 # Publications
 
-Le châtiment de clara. <a href="http://www.saint-jeanediteur.com/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN-13: 9782894557273, 2017.
+Le châtiment de clara. <a href="http://www.saint-jeanediteur.com/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN-13: 9782897582890, 2017.
 
 Isa. L'île des exclus. <a href="http://www.saint-jeanediteur.com/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN-13: 9782894557273, 2014.
 
 Marie Major. Pocket. ISBN: 9782226223027, 2013.
 
-Marie Major (Réédition). <a href="http://www.franceloisirs.com/.com/" target="_blank">France Loisirs</a>. ISBN-13: 9782298045963, 2011.
+Marie Major (Réédition). <a href="http://www.franceloisirs.com/" target="_blank">France Loisirs</a>. ISBN-13: 9782298045963, 2011.
 
 Robertine Barry. On l'appelait Monsieur. Éditions Trois-Pistoles. ISBN-13: 9782895832287, 2011.
 
