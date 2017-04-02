@@ -30,8 +30,8 @@ Médecins et sages-femmes. <a href="http://www.quebec-amerique.com/" target="_bl
 
 <img style='float:right; padding: 10px;' src='../images/clara.png' alt="Couvertude de Clara"/>
 
-*Extrait du communiqué de presse* : « LE CHÂTIMENT DE CLARA par SERGINE
-DESJARDINS. Avec la rigueur et le talent qu'on lui connaît (Marie Major, Isa)
+*Extrait du communiqué de presse* : « Le châtiment de Clara » par Sergine
+Desjardins. Avec la rigueur et le talent qu'on lui connaît (Marie Major, Isa)
 Sergine Desjardins nous plonge dans la France du XVIIe siècle avec un tel
 réalisme qu'on s'y croirait. Une histoire d'inégalité hommes/femmes qui
 démontre tout le chemin parcouru depuis et ce qu'il reste à faire…
@@ -86,15 +86,15 @@ Barry.
 
 *Robertine Barry, la femme nouvelle*. L'expression <i>Femme nouvelle</i> désignait, à l'époque, les femmes qui étudiaient dans des universités où qui, à l'instar de Robertine Barry, refusaient de se soumettre aux normes sociales, défendaient les droits des femmes bec et ongles et prenaient leur place dans des domaines jusque-là réservés aux hommes. "Les femmes nouvelles, écrivit Jean-Claude Bologne dans Histoire du célibat et des célibataires, ne se contentent plus de seconds rôles, elles veulent courir le monde, aimer à leur guise. Admirées par certains, vilipendées par d'autres, rien ne leur fut facile. Car la liberté est un chemin solitaire."
 
-  Robertine Barry a été la soeur d'amitié d'Émile Nelligan, (son amante affirment certains), la marraine littéraire d'Olivar Asselin et a été un modèle pour bien des femmes qui hésitaient à s'aventurer en-dehors de la sphère privée où on les confinait. Coïncidence : Marie Major et Robertine Barry sont  toutes deux nées un 26 février...
+Robertine Barry a été la soeur d'amitié d'Émile Nelligan, (son amante affirment certains), la marraine littéraire d'Olivar Asselin et a été un modèle pour bien des femmes qui hésitaient à s'aventurer en-dehors de la sphère privée où on les confinait. Coïncidence : Marie Major et Robertine Barry sont  toutes deux nées un 26 février...
 
-  <i>Communiqué de presse</i>: Victor-Lévy Beaulieu, directeur des Éditions Trois-Pistoles, est heureux d'annoncer la parution de <i>Robertine Barry</i>, premier volet d'une biographie en deux tomes signée Sergine Desjardins, auteure du roman historique <i>Marie Major</i> sacré best-seller au Québec. Fruit d'un travail de recherche minutieux et bellement écrit, ce livre-hommage marque le centième anniversaire du décès de la journaliste et éditrice Robertine Barry, femme de conviction et d'action, première femme journaliste du Canada français, pionnière de la défense des droits des femmes.
+<i>Communiqué de presse</i>: Victor-Lévy Beaulieu, directeur des Éditions Trois-Pistoles, est heureux d'annoncer la parution de <i>Robertine Barry</i>, premier volet d'une biographie en deux tomes signée Sergine Desjardins, auteure du roman historique <i>Marie Major</i> sacré best-seller au Québec. Fruit d'un travail de recherche minutieux et bellement écrit, ce livre-hommage marque le centième anniversaire du décès de la journaliste et éditrice Robertine Barry, femme de conviction et d'action, première femme journaliste du Canada français, pionnière de la défense des droits des femmes.
 
-  Née à L'Isle-Verte au Bas-Saint-Laurent en 1863 et décédée à Montréal en 1910, Robertine Barry a entamé sa carrière de journaliste en 1891 lorsqu'elle s'est jointe à l'équipe du journal La Patrie. Sous le pseudonyme de Françoise, elle signa pendant près de dix ans une chronique hebdomadaire intitulée <i>Chronique du lundi</i>, ouvrant la voie au journalisme féminin. En 1902, elle fondait une revue bimensuelle, le <i>Journal de Françoise</i>, qui fut l'une de ses plus grandes réalisations.
+Née à L'Isle-Verte au Bas-Saint-Laurent en 1863 et décédée à Montréal en 1910, Robertine Barry a entamé sa carrière de journaliste en 1891 lorsqu'elle s'est jointe à l'équipe du journal La Patrie. Sous le pseudonyme de Françoise, elle signa pendant près de dix ans une chronique hebdomadaire intitulée <i>Chronique du lundi</i>, ouvrant la voie au journalisme féminin. En 1902, elle fondait une revue bimensuelle, le <i>Journal de Françoise</i>, qui fut l'une de ses plus grandes réalisations.
 
-  Dans <i>Robertine Barry</i>, l'auteure Sergine Desjardins nous fait partager la vie de cette femme résolument moderne, indépendante et hautement respectée qui défendit avec une conviction inébranlable la justice sociale et les droits des femmes, qui a grandement contribué à la diffusion de la littérature québécoise et qui a été une source d'inspiration pour plusieurs générations de femmes engagées. L'auteure nous entraîne sur les chemins qui ont marqué la vie de cette grande dame, de L'Isle-Verte où elle est née jusqu'à Montréal en passant par Trois-Pistoles et Les Escoumins où elle a résidé. Une histoire de vie qui se lit comme un grand roman tant est captivante la destinée de Robertine Barry.
+Dans <i>Robertine Barry</i>, l'auteure Sergine Desjardins nous fait partager la vie de cette femme résolument moderne, indépendante et hautement respectée qui défendit avec une conviction inébranlable la justice sociale et les droits des femmes, qui a grandement contribué à la diffusion de la littérature québécoise et qui a été une source d'inspiration pour plusieurs générations de femmes engagées. L'auteure nous entraîne sur les chemins qui ont marqué la vie de cette grande dame, de L'Isle-Verte où elle est née jusqu'à Montréal en passant par Trois-Pistoles et Les Escoumins où elle a résidé. Une histoire de vie qui se lit comme un grand roman tant est captivante la destinée de Robertine Barry.
 
-  <i>Robertine Barry</i> de Sergine Desjardins, premier volet d'une biographie en deux tomes, est un ouvrage de 424 pages.
+<i>Robertine Barry</i> de Sergine Desjardins, premier volet d'une biographie en deux tomes, est un ouvrage de 424 pages.
 
 ## Marie Major
 
