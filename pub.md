@@ -26,7 +26,7 @@ Marie Major. <a href="http://www.saint-jeanediteur.com/" target="_blank">Guy Sai
 
 Médecins et sages-femmes. <a href="http://www.quebec-amerique.com/" target="_blank">Éditions Québec Amérique</a>. ISBN: 2890377164, 1993.
 
-## Le chose de Clara
+## Le châtiment de clara
 
 <img style='float:right; padding: 10px;' src='../images/clara.png' alt="Couvertude de Clara"/>
 
