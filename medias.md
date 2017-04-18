@@ -1,4 +1,7 @@
----
+Critique de Le châtiment de Clara
+
+« Ce n'est pas le premier roman de Sergine Desjardins que je lis, mais je dois dire sans aucune hésitation que ce roman est sublime. J'ai passé par toute une gamme d'émotions en lisant ce livre, la colère, la frustration, la peine, l'espoir et encore plus ! Une chose est bien certaine, vous ne pourrez pas mettre ce livre de côté, tant l'histoire est prenante, les personnages attachants. Une bonne brique, oui, mais, dont la lecture passe tellement vite, que nous restons surprises quand on arrive finalement à l'épilogue. On dit qu'un auteur atteint son but quand il suscite des réactions de la part du lecteur, quant au travers les lignes de son roman, il fait vivre les émotions de ses personnages à ses lecteurs, alors c'est mission accomplie pour Sergine Desjardins. » Lynda Massicotte. Blogue littéraire Les mille et une pages de LM. http://lesmilleetunlivreslm.over-blog.com/2017/04/le-chatiment-de-clara-sergine-desjardins-guy-saint-jean-editeur-par-lynda-massicotte.html?utm_source=_ob_share&utm_medium=_ob_facebook&utm_campaign=_ob_sharebar
+
 layout: default
 title: Médias
 permalink: /medias/
