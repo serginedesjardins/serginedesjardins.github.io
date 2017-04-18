@@ -21,9 +21,7 @@ indépendant Marguerite Yourcenar
 
 Elle a ensuite écrit la biographie de Robertine Barry, première femme
 journaliste canadienne-française et pionnière dans la défense des droits des
-femmes. Cette biographie en deux tomes lui a mérité le Prix Jovette Bernier en
-2011. Cette même année, elle fut l’une des invités d’honneur du Salon du livre
-de Rimouski.
+femmes. Cette biographie en deux tomes lui a mérité le Prix Jovette Bernier en 2011. Cette même année, elle fut l'une des invités d'honneur du Salon du livre de Rimouski.
 
 En 2012, elle fut l’une des vingt auteurs choisis par l’UNEQ et l’ACFAS pour
 rédiger un texte inspiré d’une recherche scientifique.
@@ -34,6 +32,8 @@ au 19e siècle. Les deux tomes de ce roman, publiés en 2014, ont été au palma
 Gaspard pendant huit semaines. Ce diptyque a aussi été publié chez Québec-Loisirs.
 
 En 2015, elle a reçu le prix Artiste de la ville de Rimouski où elle habite.
+
+En 2017, elle a publié Le châtiment de Clara, racontant l’histoire d’une femme du 17e siècle victime d’un viol. 
 
 Depuis 2006, elle participe à de nombreuses activités littéraires et donne des
 conférences dont les titres sont : 1. Les filles du roi et leur époque. 2.
