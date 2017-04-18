@@ -1,4 +1,10 @@
-Concernant Le Châtiment de Clara :
+---
+layout: default
+title: Lecteurs
+permalink: /lecteurs/
+---
+
+# Concernant Le Châtiment de Clara:
 
 « Ce livre est sublime. J’ai eu de grandes difficultés à le poser afin de vaquer à d’autres tâches, c’était chaque fois un arrache-cœur. Sergine a encore réussi à me captiver. Triste de l'avoir déjà terminé. J'aurais aimé en lire au moins autant. Merci Sergine pour cette nouvelle œuvre que j'ai dévorée. Je te souhaite un best-seller car ce livre mérite amplement d'en devenir un. Je suis prête pour le prochain. J’ai adoré, vraiment. » Hélène Desjardins. Mont-Joli.
 
@@ -13,12 +19,6 @@ Concernant Le Châtiment de Clara :
 « Je vous souhaite une très belle journée d'anniversaire! C'est curieux, c'est votre anniversaire et c'est à moi que j'ai acheté un cadeau, Le châtiment de Clara ! J'ai commencé à le lire hier soir ... et je me suis couchée beaucoup trop tard! C'est excellent, j'étais très contente de vous retrouver! Au plaisir de vous revoir lors d'un Salon du livre! » France Lapierre. Laval.
 
 « Un roman très documenté sur les mœurs de l’époque mais un sujet toujours actuel. Merci Sergine de nous offrir ces moments de lectures si enrichissants ! » Lise Hébert. Lévis.
-
----
-layout: default
-title: Lecteurs
-permalink: /lecteurs/
----
 
 # Concernant Isa:
 
