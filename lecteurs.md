@@ -1,3 +1,19 @@
+Concernant Le Châtiment de Clara :
+
+« Ce livre est sublime. J’ai eu de grandes difficultés à le poser afin de vaquer à d’autres tâches, c’était chaque fois un arrache-cœur. Sergine a encore réussi à me captiver. Triste de l'avoir déjà terminé. J'aurais aimé en lire au moins autant. Merci Sergine pour cette nouvelle œuvre que j'ai dévorée. Je te souhaite un best-seller car ce livre mérite amplement d'en devenir un. Je suis prête pour le prochain. J’ai adoré, vraiment. » Hélène Desjardins. Mont-Joli.
+
+« Je lis le livre de Sergine Desjardins Le châtiment de Clara. Je suis incapable de m’arrêter de lire tellement j’aime cette histoire et la beauté de l’écriture de Sergine. J’aime Le châtiment de Clara, comme j’ai aimé Marie Major. Je n’ai pas fini de lire ce beau livre et j’ai l’impression de vivre à Paris, pas très loin de la Seine, en 1688. » J.A. Lévesque. Rimouski.
+
+« Je viens de le commencer et je suis triste de devoir le laisser reposer un peu. Le récit est diablement bien ficelé ! » Quelques jours plus tard : « Bon anniversaire chère Sergine. Suis en retard parce que j’étais plongée jusqu’au cou dans ton dernier roman. Impossible de le lâcher. Je suis passée par toute la gamme des émotions. Pas reposant ! Félicitations, tu as bien réussi d’autant qu’on peut y superposer les temps actuels sans mal. » Huguette Loubert, Montréal.
+
+« Délicieux, vraiment bon. Vous avez tellement une belle plume. Merci encore. » France Lévesque. Matane.
+
+« Je viens de le commencer et je suis triste de devoir le laisser reposer un peu. Le récit est diablement bien ficelé ! » Quelques jours plus tard : « Bon anniversaire chère Sergine. Suis en retard parce que j’étais plongée jusqu’au cou dans ton dernier roman. Impossible de le lâcher. Je suis passée par toute la gamme des émotions. Pas reposant ! Félicitations, tu as bien réussi d’autant qu’on peut y superposer les temps actuels sans mal. » Huguette Loubert, Montréal.
+
+« Je vous souhaite une très belle journée d'anniversaire! C'est curieux, c'est votre anniversaire et c'est à moi que j'ai acheté un cadeau, Le châtiment de Clara ! J'ai commencé à le lire hier soir ... et je me suis couchée beaucoup trop tard! C'est excellent, j'étais très contente de vous retrouver! Au plaisir de vous revoir lors d'un Salon du livre! » France Lapierre. Laval.
+
+« Un roman très documenté sur les mœurs de l’époque mais un sujet toujours actuel. Merci Sergine de nous offrir ces moments de lectures si enrichissants ! » Lise Hébert. Lévis.
+
 ---
 layout: default
 title: Lecteurs
