@@ -1,3 +1,4 @@
+---
 layout: default
 title: Médias
 permalink: /medias/
