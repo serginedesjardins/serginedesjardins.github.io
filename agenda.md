@@ -6,6 +6,21 @@ permalink: /agenda/
 
 # Calendrier des activités. 
 
+2017
+
+16 septembre. Conférence. Les filles du Roy et leur époque. Association des Major-Bronton d’Amérique. Restaurant Chez Éric, 295, rue Saint-Paul. Montréal.
+
+14 septembre : Conférence. Tracadie au temps de la lèpre. Société d’Histoire et de généalogie de Trois-Rivières.
+
+30 avril, 14 heures : Conférence. Tracadie au temps de la lèpre et Viol au 17e siècle. Société d’Histoire et de généalogie de Matane. 320 Boul. Dion Ouest. 
+
+9 janvier : Conférence : Tracadie au temps de la lèpre. Société d’histoire et de généalogie de Rimouski.
+
+2016
+
+Hiver 2016. Causerie littéraire. Retraite-Action Rimouski.
+
+
 ## 2015
 
 
