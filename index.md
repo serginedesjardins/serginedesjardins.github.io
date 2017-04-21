@@ -6,42 +6,20 @@ permalink: /
 
 <img style='float:right; padding: 10px' src='images/sergine-2014-08.png' alt='photo'>
 
-Détentrice d’une maîtrise ès arts (Éthique), Sergine Desjardins a collaboré à
-deux ouvrages et publié, en 1993, un essai, Médecins & Sages-femmes. Les enjeux
-d’un débat qui n’en finit plus. Avant de consacrer tout son temps à l’écriture,
-elle a notamment été assistante de recherches, a fondé un organisme venant en
-aide aux jeunes et a exercé le métier de journaliste pigiste.
+Ayant quitté l'école à l'âge de 16 ans, j'ai pratiqué divers métiers avant de retourner aux études et de compléter une maîtrise en éthique.
 
-Son premier roman, Marie Major, est inspiré de son ancêtre, une fille du roi
-dont l’époux, Antoine Roy dit Desjardins, a été assassiné dans le lit de sa
-maîtresse. Ce roman historique a inspiré un épisode de la série télévisée
-Canada en amour et a été couronné par le [prix littéraire international
-indépendant Marguerite Yourcenar
-2013](http://ici.radio-canada.ca/nouvelles/arts_et_spectacles/2013/08/14/001-sergine-desjardins-recoit-un-prix-litteraire.shtml). Ce roman a aussi été publié chez France-Loisirs, Québec-Loisirs et Pocket.
+J'ai ensuite été assistante de recherche, puis j'ai fondé et dirigé un organisme de parrainage pour les jeunes. À titre de pigiste, j'ai rédigé plusieurs articles pour divers magazines, ainsi que pour un quotidien. J'ai aussi écrit des biographies familiales et collaboré à deux ouvrages collectifs, *Perspectives éthiques sur la condition des femmes* et *Chaperon Blues*. Je suis aussi l'auteure d'un essai, *Médecins & Sages-femmes. Les enjeux d'un débat qui n'en finit plus*.
 
-Elle a ensuite écrit la biographie de Robertine Barry, première femme
-journaliste canadienne-française et pionnière dans la défense des droits des
-femmes. Cette biographie en deux tomes lui a mérité le Prix Jovette Bernier en 2011. Cette même année, elle fut l'une des invités d'honneur du Salon du livre de Rimouski.
+Mon premier roman, *Marie Major*, est inspiré de la vie de mon ancêtre, une Fille du roi dont l'époux, Antoine Roy dit Desjardins, a été assassiné dans le lit de sa maîtresse. Réimprimé 4 fois par Guy Saint-Jean éditeur, les droits ont aussi été achetés par Québec/Loisirs, France/Loisirs et Pocket. Ce roman a été couronné du [prix littéraire international indépendant Marguerite Yourcenar 2013](http://ici.radio-canada.ca/nouvelles/arts_et_spectacles/2013/08/14/001-sergine-desjardins-recoit-un-prix-litteraire.shtml) décerné par l'agence littéraire italienne Punctum.
 
-En 2012, elle fut l’une des vingt auteurs choisis par l’UNEQ et l’ACFAS pour
-rédiger un texte inspiré d’une recherche scientifique.
+J'ai ensuite écrit la biographie de Robertine Barry, première femme journaliste canadienne-française. Cette bio en deux tomes m'a mérité le Prix Jovette Bernier 2011. Cette même année, j'étais l'une des invités d'honneur du Salon du livre de Rimouski.
 
-En 2013, elle a reçu une bourse du Conseil des arts du Québec afin d’écrire son
-diptyque Isa ayant pour toile de fond l’épidémie de lèpre au Nouveau-Brunswick
-au 19e siècle. Les deux tomes de ce roman, publiés en 2014, ont été au palmarès
-Gaspard pendant huit semaines. Ce diptyque a aussi été publié chez Québec-Loisirs.
+En 2012, je fus l'une des vingt auteurs choisis par l'UNEQ et l'ACFAS pour rédiger un texte poétique inspiré d'une recherche scientifique. La même année, j'ai reçu une bourse du Conseil des arts du Québec afin d'écrire mon diptyque Isa. Les deux tomes de ce roman, dont la toile de fond est l'épidémie de lèpre au Nouveau-Brunswick, ont été au palmarès Gaspard pendant huit semaines.
 
-En 2015, elle a reçu le prix Artiste de la ville de Rimouski où elle habite.
+En 2014, j'étais finaliste pour le Prix Artiste de la ville de Rimouski avant d'être, en 2015, récipiendaire de ce prix.
 
-En 2017, elle a publié Le châtiment de Clara, racontant l’histoire d’une femme du 17e siècle victime d’un viol. 
+En 2016, a été publié dans l'Encyclopédie canadienne mon article sur Robertine Barry et un autre sera publié à l'automne 2017 dans le Dictionnaire des grandes québécoises d'hier et d'aujourd'hui.
 
-Depuis 2006, elle participe à de nombreuses activités littéraires et donne des
-conférences dont les titres sont : 1. Les filles du roi et leur époque. 2.
-Robertine Barry et son époque. 3. Tracadie au temps de la lèpre.
+Le châtiment de Clara, mon plus récent roman lancé au Québec en avril 2017, raconte l'histoire d'une femme victime d'un viol au 17e siècle.
 
-Le dictionnaire Les 50 femmes les plus remarquables auquel elle a collaboré
-sera publié à l’automne 2016. Sa page est consacrée à Robertine Barry.
-
-Elle est membre de l'UNEQ
-
-Pour communiquer avec elle : serginedesjardins@gmail.com
+J'offre une série de conférences dont les titres sont : 1. Marie Major et son époque. 2. Les Filles du Roy. 3. Robertine Barry et son époque. 4. Tracadie au temps de la lèpre. 5. Viol et violence faite aux femmes au 17e siècle. 6. La vie tumultueuse de deux femmes du 17e siècle : Marie Major et Clara de Longueville.
