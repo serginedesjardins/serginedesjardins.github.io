@@ -6,7 +6,7 @@ permalink: /agenda/
 
 # Calendrier des activités. 
 
-2017
+## 2017
 
 16 septembre. Conférence. Les filles du Roy et leur époque. Association des Major-Bronton d’Amérique. Restaurant Chez Éric, 295, rue Saint-Paul. Montréal.
 
@@ -16,10 +16,9 @@ permalink: /agenda/
 
 9 janvier : Conférence : Tracadie au temps de la lèpre. Société d’histoire et de généalogie de Rimouski.
 
-2016
+## 2016
 
 Hiver 2016. Causerie littéraire. Retraite-Action Rimouski.
-
 
 ## 2015
 
