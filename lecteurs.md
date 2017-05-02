@@ -24,6 +24,8 @@ permalink: /lecteurs/
 
 « J’ai lu votre livre avec grand plaisir. J’attends le prochain avec envie et je dois aller porter votre volume à ma mère de 85 ans. Bonne journée. » Hélène Deschesne.
 
+« Je suis encore envoutée… pas capable de laisser ce livre plus de 15 minutes, le temps de m’alimenter et reposer mes yeux. Sergine Desjardins, tu es un génie ! » North Troy, Vermont.
+
 « Ce livre est sublime. J’ai eu de grandes difficultés à le poser afin de vaquer à d’autres tâches, c’était chaque fois un arrache-cœur. Sergine a encore réussi à me captiver. Triste de l'avoir déjà terminé. J'aurais aimé en lire au moins autant. Merci Sergine pour cette nouvelle œuvre que j'ai dévorée. Je te souhaite un best-seller car ce livre mérite amplement d'en devenir un. Je suis prête pour le prochain. J’ai adoré, vraiment. » Hélène Desjardins (sans lien de parenté). Mont-Joli.
 
 « Je lis le livre de Sergine Desjardins Le châtiment de Clara. Je suis incapable de m’arrêter de lire tellement j’aime cette histoire et la beauté de l’écriture de Sergine. J’aime Le châtiment de Clara, comme j’ai aimé Marie Major. Je n’ai pas fini de lire ce beau livre et j’ai l’impression de vivre à Paris, pas très loin de la Seine, en 1688. » J.A. Lévesque. Rimouski.
