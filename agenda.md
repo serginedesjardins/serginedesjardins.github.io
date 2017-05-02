@@ -14,6 +14,8 @@ permalink: /agenda/
 
 30 avril, 14 heures : Conférence. Tracadie au temps de la lèpre et Viol au 17e siècle. Société d’Histoire et de généalogie de Matane. 320 Boul. Dion Ouest. 
 
+Salon du livre de Québec, horaire de mes séances de dédicaces : vendredi 7 avril : 13 à 14 et 15 à 16 h. Samedi, 8 avril : midi à 13 : 30 et 15 à 16 h. Dimanche 9 avril : midi à 13 et 14 à 15 h.
+
 9 janvier : Conférence : Tracadie au temps de la lèpre. Société d’histoire et de généalogie de Rimouski.
 
 ## 2016
