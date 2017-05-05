@@ -4,6 +4,14 @@ title: Médias
 permalink: /medias/
 ---
 
+# Entrevues
+
+*11 avril 2017*: [Entrevue accordée à Éric Barrette au sujet de mon roman Le châtiment de Clara, Radio-Canada.](http://ici.radio-canada.ca/premiere/emissions/info-reveil/episodes/378762/audio-fil-du-mardi-11-avr)
+
+*10 janvier 2017*: [Entrevue accordée à Éric Barrette au sujet de mon article sur Robertine Barry dans l'Encyclopédie canadienne, Radio-Canada.](http://ici.radio-canada.ca/premiere/emissions/info-reveil/episodes/371855/audio-fil-du-mardi-10-janvier-2017)
+
+*26 avril 2017*: [Entrevue accordée à Denis Lévesque au sujet de ma conférence Tracadie au temps de la lèpre et de mon roman Le châtiment de Clara, 105-3 Matane.](http://sergine-desjardins.com/files/2017-entrevue.mp3)
+
 # Critiques Le châtiment de Clara
 
 « Ce n'est pas le premier roman de Sergine Desjardins que je lis, mais je dois dire sans aucune hésitation que ce roman est sublime. J'ai passé par toute une gamme d'émotions en lisant ce livre, la colère, la frustration, la peine, l'espoir et encore plus ! Une chose est bien certaine, vous ne pourrez pas mettre ce livre de côté, tant l'histoire est prenante, les personnages attachants. Une bonne brique, oui, mais, dont la lecture passe tellement vite, que nous restons surprises quand on arrive finalement à l'épilogue. On dit qu'un auteur atteint son but quand il suscite des réactions de la part du lecteur, quant au travers les lignes de son roman, il fait vivre les émotions de ses personnages à ses lecteurs, alors c'est mission accomplie pour Sergine Desjardins. » [Lynda Massicotte. Blogue littéraire Les mille et une pages de LM.](http://lesmilleetunlivreslm.over-blog.com/2017/04/le-chatiment-de-clara-sergine-desjardins-guy-saint-jean-editeur-par-lynda-massicotte.html?utm_source=_ob_share&utm_medium=_ob_facebook&utm_campaign=_ob_sharebar)
@@ -268,7 +276,7 @@ de Carignan. Un jour, on l'a retrouvé mort dans le lit de sa maîtresse. Trucid
 par le cocu. Pittoresque, solidement documenté et agréablement écrit, ce roman
 entraîne le lecteur dans les couloirs de la justice de l'époque. Une curieuse
 justice où un simple boulanger pouvait devenir... juge!. » - Didier Fessou. Le
-Soleil. 11 mai 2008. 
+Soleil. 11 mai 2008.
 
 « La sortie de ce livre a ravi bien des lecteurs et des critiques qui l'ont
 louangé à profusion. Et bien justement. En effet, l'histoire de cette Fille du
@@ -352,7 +360,7 @@ suspense, passion....Ce roman documenté, ficelé et agréablement bien écrit m
 fait passer par toutes les gammes d'émotions. Je me suis attachée au personnage
 de Marie, cette femme marginale et forte et elle m'a habitée bien au-delà de ma
 lecture. Un pur moment d'enchantement!. » - Lucie Rhéaume, membre du comité de
-lecture de Québec Loisirs. 
+lecture de Québec Loisirs.
 
 « Roman historique merveilleusement bien documenté, Marie Major nous raconte
 l'histoire de l'ancêtre de l'auteur. Ce roman n'est toutefois pas construit
@@ -476,7 +484,7 @@ femmes de cette époque mais en y mêlant une romance tout à fait plausible.
 Aussi passionnant qu'un polar moderne, ce livre de près de 500 pages fait état
 d'une époque heureusement révolue où le clergé exerçait une influence
 indéniable faisant peu de cas de l'intelligence des femmes. Un livre à lire. »
-- Claudette Dorval. Le Saint-Laurent Portage. 3 juin 2006. 
+- Claudette Dorval. Le Saint-Laurent Portage. 3 juin 2006.
 
 « Marie Major. C'est un excellent bouquin. » - France Gauthier. Le livre Show.
 21 juillet 2006
@@ -561,7 +569,7 @@ Microclimat. Radio-Canada, 17 mars 2007.
 « Vous êtes une conteuse absolument fabuleuse. On a envie de vous lire et de
 vous entendre. » - Annie Landreville. Chroniqueuse culturel. Info-Réveil. <a
 href="http://www.radio-canada.ca/regions/Bas-st-laurent/Radio/Sitems/Index.asp?pk_region=12&id=576&IDEmissionFR=182&IDCat=6&leMois1=2007/04&sub=..%2F..%2F"
-target="_blank">Radio-Canada, 5 avril 2007</a>. 
+target="_blank">Radio-Canada, 5 avril 2007</a>.
 
 « Des ancêtres étonnants : Sergine Desjardins, de Rimouski, auteure d'un roman
 historique inspiré de la vie de son ancêtre, Marie Major, une fille du Roy dont
