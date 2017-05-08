@@ -10,9 +10,9 @@ permalink: /lecteurs/
 
 « Et voilà, j’ai terminé Le châtiment de Clara… et je crois que je ne suis plus la même personne : j’ai ouvert encore plus grand ma conscience sociale, aiguiser le féminisme en moi et j’ai mesuré le long chemin parcouru par les générations de femmes avant nous. Clara a désormais une place dans mon cœur, juste à côté de ma préférée, Marie Major ! Simplement merci à toi, Sergine, pour ce roman. Merci de nous partager tes connaissances et ton talent. » Linda Latouche.
 
-« Je viens de terminer la lecture de Clara. J’ai adoré. Captivant d’un couvert à l’autre. Merci beaucoup de m’avoir permis de connaître tous ces personnages. C’est certain que je vais continuer de vous lire. Mille fois bravo. Marlène Carrier. Saint-Fabien.
+« Je viens de terminer la lecture de Clara. J’ai adoré. Captivant d’un couvert à l’autre. Merci beaucoup de m’avoir permis de connaître tous ces personnages. C’est certain que je vais continuer de vous lire. Mille fois bravo. » Marlène Carrier. Saint-Fabien.
 
-« Chère Sergine, j’ai terminé la lecture de ton roman Le châtiment de Clara. Il m’était difficile de restreindre ma lancée d’un chapitre à l’autre pour dormir. J’ai tant aimé et pris conscience que la justice a beaucoup à faire même aujourd’hui concernant le viol. Ces victimes ont encore peur de la dénonciation. Toujours mises en doute sur l’impunité. Merci pour ces bons moments de lecture. Maud Desjardins (sans lien de parenté). Saint-Jérome.
+« Chère Sergine, j’ai terminé la lecture de ton roman Le châtiment de Clara. Il m’était difficile de restreindre ma lancée d’un chapitre à l’autre pour dormir. J’ai tant aimé et pris conscience que la justice a beaucoup à faire même aujourd’hui concernant le viol. Ces victimes ont encore peur de la dénonciation. Toujours mises en doute sur l’impunité. Merci pour ces bons moments de lecture. » Maud Desjardins (sans lien de parenté). Saint-Jérome.
 
 « Je viens de terminer la lecture du "Châtiment de Clara" dans un temps record. J'ai beaucoup aimé et ça a mis en lumière des comportements et de façons de faire qui m'étaient jusqu'ici inconnus. J'ai adoré ce livre au point de délaisser mon mari, j'étais incapable d'arrêter ma lecture. Merci de nous faire vivre de si beaux moments. » Agathe Geoffroy. Notre-Dame-des-Prairies.
 
