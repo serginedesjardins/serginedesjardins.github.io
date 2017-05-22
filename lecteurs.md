@@ -48,6 +48,20 @@ permalink: /lecteurs/
 
 « Un roman très documenté sur les mœurs de l’époque mais un sujet toujours actuel. Merci Sergine de nous offrir ces moments de lectures si enrichissants ! » Lise Hébert. Lévis.
 
+Commentaires au fil de sa lecture de Madeleine Gagnon : « Je suis avec Clara depuis ce matin. Impossible de le quitter.  Je m’instruis en même temps que je suis l’intrigue qui va de rebondissement en rebondissement… Bien ficelée cette histoire ! Documentée au possible ! Toutes les pages transpirent de petits détails posés comme une fille dentelle sur du satin. » Le lendemain : « Ce livre est comme un véritable gâteau aux fruits à la mode traditionnelle. Le dosage des ingrédients est parfait. La méthode de fabrication tient de références hautement sélectionnées. L’assaisonnement au clou de girofle redonne aux dialogues la fine pointe de nos partages secrets. À déguster par tranches d’un pouce par jour pour laisser macérer le dénouement. Un pur délice. » Dernier message : « Je viens de terminer. Je m’incline devant ce beau roman, douloureux et vrai. Votre immense travail glisse sur nos doigts empressés de tourner les pages. Votre meilleur, vous pouvez en être fière. Qu’attend Radio-Canada pour en parler ? Le Soleil de Québec pour nous le présenter? » Madeleine Gagnon. Sainte-Foy.
+
+« Bravo Sergine. Grâce à vos romans, on connait mieux l’existence des premiers résidents de Nouvelle-France de même que la première femme journaliste au Bas-Canada. Toutes ces histoires qui ont fait de nous ce que nous sommes et que nous avons oubliées car on ne se raconte plus que les nouvelles officielles diffusées par les médias. » Marie-Claire Pouliot.
+
+« Je termine aujourd’hui « Le châtiment de Clara ». C’est tellement bon. Il a sûrement demandé un gros travail de recherches. Bravo. » Francine Ouimet.
+
+« Ta magnifique plume ne cesse de m’épater. Je suis époustouflé par le cheminement de Clara depuis le premier Ce n’est que par amitié, p. 27 et pourtant je ne suis même pas près de la moitié de ton dernier chef d’œuvre. Combien la mentalité masculine a évolué depuis et combien il y a toujours d’améliorations encore à venir ! De plus, quel travail de cloitrée, tu as dû accomplir pour te documenter si minutieusement du quotidien français du 17e siècle. As-tu accès à une machine à traverser le temps ». Pierre Fortin. Laval.  
+
+« J’adore. » Sylvie Bouffard-Gravel. Montréal.
+
+« Excellent. C’est le meilleur de ta collection, Sergine. Bravo ! » Monique Fournier. Matane. 
+
+
+
 # Concernant Isa:
 
 « Je viens de terminer la lecture de Isa, l'île de l'ermite. Je 
