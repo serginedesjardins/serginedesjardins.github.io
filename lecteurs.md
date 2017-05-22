@@ -38,6 +38,10 @@ permalink: /lecteurs/
 
 « Ce livre est sublime. J’ai eu de grandes difficultés à le poser afin de vaquer à d’autres tâches, c’était chaque fois un arrache-cœur. Sergine a encore réussi à me captiver. Triste de l'avoir déjà terminé. J'aurais aimé en lire au moins autant. Merci Sergine pour cette nouvelle œuvre que j'ai dévorée. Je te souhaite un best-seller car ce livre mérite amplement d'en devenir un. Je suis prête pour le prochain. J’ai adoré, vraiment. » Hélène Desjardins (sans lien de parenté). Mont-Joli.
 
+« Je peux vous dire que c’est très bon. Je suis passée par toutes sortes d’émotions. Il est captivant et je l’ai lu en trois jours : on veut toujours savoir ce qui va arriver. Je vous conseille de l’acheter car ce roman est excellent. Merci Sergine. J’ai hâte de lire ton prochain livre. » Raymonde D.Jean. Rimouski. 
+
+« C’est un roman exceptionnel. Ton meilleur, Sergine. Il est tellement bon que je voudrais ne jamais le terminer. Il faudrait en faire une série à Radio-Canada. Mais les convaincre, c’est une autre histoire ! » Hélène Fortin. Sainte-Félicité.  
+
 « Je lis le livre de Sergine Desjardins Le châtiment de Clara. Je suis incapable de m’arrêter de lire tellement j’aime cette histoire et la beauté de l’écriture de Sergine. J’aime Le châtiment de Clara, comme j’ai aimé Marie Major. Je n’ai pas fini de lire ce beau livre et j’ai l’impression de vivre à Paris, pas très loin de la Seine, en 1688. » J.A. Lévesque. Rimouski.
 
 « Je viens de le commencer et je suis triste de devoir le laisser reposer un peu. Le récit est diablement bien ficelé ! » Quelques jours plus tard : « Bon anniversaire chère Sergine. Suis en retard parce que j’étais plongée jusqu’au cou dans ton dernier roman. Impossible de le lâcher. Je suis passée par toute la gamme des émotions. Pas reposant ! Félicitations, tu as bien réussi d’autant qu’on peut y superposer les temps actuels sans mal. » Huguette Loubert, Montréal.
