@@ -72,7 +72,7 @@ Commentaires au fil de sa lecture de Madeleine Gagnon : « Je suis avec Clara de
 l'ai dévoré! L'île de l'ermite n'est pas l'oeuvre d'une historienne qui écrit 
 un roman. Vous êtes une authentique romancière qui plonge ses personnages dans 
 une autre réalité spatio-temporelle. Certains passages où Isa réfléchit à sa 
-vie m'ont bouleversée. Merci et continuez à écrire, s'il vous plaît!» - France Lapierre. Montréal.
+vie m'ont bouleversée. Merci et continuez à écrire, s'il vous plaît!» - France Lapierre. Laval.
 
  « Je voulais vous dire que j'ai adoré votre livre Isa. L'île
 des exclus t.1. Je trouve que c'est un livre rempli d'émotions avec des
