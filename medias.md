@@ -19,6 +19,8 @@ permalink: /medias/
 
 « Ce roman, Le châtiment de Clara, bouleverse et ne peut laisser indifférent (…) et j’ai passé par plusieurs gammes d’émotions durant cette lecture. Mon cœur s’est serré à quelques reprises tellement certains faits sont venus me chercher. (…) Sergine Desjardins écrit bien et sait parfaitement glisser ses mots à la bonne place afin qu’ils atteignent le but désiré comme celui de nous faire réfléchir sur ce qu’était la condition féminine il y a quelques siècles, autant à Paris qu’en Nouvelle-France et, qu'au bout du compte, sur plusieurs points comme la culture du viol par exemple, certaines mentalités et religions ont encore bien du chemin à parcourir. À lire vraiment » Suzanne Fortin. Ballade entre les lignes : http://baladeschezsue.blogspot.ca/2017/05/le-chatiment-de-clara-sergine-desjardins.html
 
+Article publié dans Le Journal de Québec, 28 mai 2017 : http://www.journaldequebec.com/2017/05/28/le-chatiment-de-clara-suspense-suspense-dans-la-france-du-17e-siecle
+
 
 # Critiques de Isa. L'île des exclus
 
