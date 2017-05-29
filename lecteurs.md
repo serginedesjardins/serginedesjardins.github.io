@@ -66,6 +66,13 @@ Commentaires au fil de sa lecture de Madeleine Gagnon : « Je suis avec Clara de
 
 « Excellent. C’est le meilleur de ta collection, Sergine. Bravo ! » Monique Fournier. Matane. 
 
+Message sur Facebook, le 28 mai : « Je suis en train de lire Le châtiment de Clara. J'adore ! Je me couche tard, ha ha ! Vos romans sont tellement touchants. C'est mon style de lecture. À quand le prochain ? Je suis consciente que vos romans demandent beaucoup de recherches et un grand coeur pour venir nous attendrir comme vous le faites. » René Audet. Québec.
+ 
+« Je viens tout juste de terminer ce livre qui m’a profondément touchée. J’ai aussi été très choquée par moment en pensant à toutes les femmes de cette époque à qui on refusait de rendre justice. Merci pour ce bel ouvrage, Mme Desjardins. Vous réussissez à nous amener avec vous dans cette époque que vous décrivez si bien. » Marie-Paule Kemp. 
+
+« C’est un roman exceptionnel… Ton meilleur à date, Sergine. » Hélène Fortin. Sainte-Félicité.
+
+« Ça y est, Sergine. À 3 h. 30 cette nuit et en pleine insomnie, je suis plongée dans l’histoire de ta Clara à la lumière de ma lampe de poche (pour ne pars réveiller la maisonnée…). Les pages se tournent toutes seules. » Mona Andrée Rainville. 
 
 
 # Concernant Isa:
