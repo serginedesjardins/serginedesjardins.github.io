@@ -36,7 +36,7 @@ permalink: /lecteurs/
 
 « J’ai lu votre livre avec grand plaisir. J’attends le prochain avec envie et je dois aller porter votre volume à ma mère de 85 ans. Bonne journée. » Hélène Deschesne.
 
-« Je suis encore envoutée… pas capable de laisser ce livre plus de 15 minutes, le temps de m’alimenter et reposer mes yeux. Sergine Desjardins, tu es un génie ! » Thérèse Dubé. North Troy, Vermont.
+« Je suis encore envoutée… pas capable de laisser ce livre plus de 15 minutes, le temps de m’alimenter et reposer mes yeux. Sergine Desjardins, tu es un génie ! » Thérèse Dubé. North Troy, Vermont. Message ajouté sur ma page Facebook le 28 mai 2017 : «  Je ne me lasse pas de relire et relire car il y a toujours des petits détails… qui m’ont échappé. Votre écriture est unique. Thérèse Dubé.
 
 « Ce livre est sublime. J’ai eu de grandes difficultés à le poser afin de vaquer à d’autres tâches, c’était chaque fois un arrache-cœur. Sergine a encore réussi à me captiver. Triste de l'avoir déjà terminé. J'aurais aimé en lire au moins autant. Merci Sergine pour cette nouvelle œuvre que j'ai dévorée. Je te souhaite un best-seller car ce livre mérite amplement d'en devenir un. Je suis prête pour le prochain. J’ai adoré, vraiment. » Hélène Desjardins (sans lien de parenté). Mont-Joli.
 
