@@ -40,6 +40,10 @@ Tu as tellement vécu dans ta tête dans ce Paris du 17ième siècle j’ai la c
 
 « Chère Sergine, j’ai terminé la lecture de ton roman Le châtiment de Clara. Il m’était difficile de restreindre ma lancée d’un chapitre à l’autre pour dormir. J’ai tant aimé et pris conscience que la justice a beaucoup à faire même aujourd’hui concernant le viol. Ces victimes ont encore peur de la dénonciation. Toujours mises en doute sur l’impunité. Merci pour ces bons moments de lecture. » Maud Desjardins (sans lien de parenté). Saint-Jérome.
 
+« Le châtiment de Clara, quel livre magnifique! À travers vos romans (Marie Major et Isa) que j'ai eu le plaisir de lire, vous nous racontez une partie de notre histoire, des coutumes de l'époque et du sort injuste réservé aux femmes puisque tout comme Marie Major, Clara a dû également changer d'identité. Vous nous faites également connaître divers endroits, dont La Salpetrière, d'où proviennent une partie des Filles du Roy. Nous pouvons ainsi nous imaginer un peu ce que ces femmes pleines de courage ont vécu. Ayant le souci du détail, vos recherches historiques ont dû être des plus laborieuses. J'avais acheté ce livre, il y a quelques semaines, et sachant à l'avance qu'il serait fort intéressant, je le conservais pour en faire la lecture lors de nos vacances en Gaspésie. Inutile de vous dire que je l'ai tout simplement dévoré. Encore une fois, merci Sergine, de nous faire vivre de si bons moments et j'attends avec impatience votre prochain livre, lequel, je l'espère nous racontera un autre pan de notre histoire. » Josée Courteau. Saint-Hyacinthe
+
+« Bonjour, je suis en train de lire Le châtiment de Clara et comme j'ai de la difficulté à arrêter ma lecture, je le lis le soir avant de m'endormir. Comme ça, je peux profiter du soleil et de la chaleur. Il nous tient en haleine et, comme toujours avec vos livres, on prend plaisir à en apprendre davantage sur le mode de vie à cette époque. Je dirais que c'est un très bon livre pour les vacances. Félicitations ! Vous avez un beau talent. » Mylène Massé, sur ma page Facebook, juillet 2017.
+
 « Je viens de terminer la lecture du "Châtiment de Clara" dans un temps record. J'ai beaucoup aimé et ça a mis en lumière des comportements et de façons de faire qui m'étaient jusqu'ici inconnus. J'ai adoré ce livre au point de délaisser mon mari, j'étais incapable d'arrêter ma lecture. Merci de nous faire vivre de si beaux moments. » Agathe Geoffroy. Notre-Dame-des-Prairies.
 
 26 avril. Message sur ma page facebook : « Bonjours je viens de terminer la lecture de 'Clara'. J'ai adoré cette façon que vous avez de nous faire voyager dans le temps en nous plongeant dans l'action pour nous amener au 17ième siècle comme si nous y serions. On se promène d'un personnage à l'autre pour tisser la trame du récit avec en prime l'histoire avec un grand H. Je suis rester accroché à ce roman avec avidité pour le déguster à chaque page. Merci de nous permettre d'entrer dans ton monde imaginaire et tellement présent en même temps. » Francis Desjardins (sans lien de parenté). Trois-Pistoles.
@@ -274,6 +278,8 @@ s'apprêtent à ouvir leurs classes aux garçons. L'Histoire a de ses
 retournements et c'est précisément ce que je cherche dans mes lectures et que
 vous m'offrez par votre travail, des perspectives historiques qui nourrissent
 et font grandir, merci » - Yvonnick Roy. Québec
+
+« Je joins ma voix à ce charmant concert pour dire que la biographie de Robertine est une merveille qui s’est lovée dans mon cœur pour y rester à jamais. Depuis ma lecture de l’œuvre l’été dernier, il ne s’est pas passé une semaine sans que je pense avec attendrissement, tant à Robertine l’audacieuse journaliste et la femme à la personnalité ravissante, qu’à Sergine la biographe passionnée et méticuleuse qui, par un tour de force, rend toute légère la lecture d’un sujet pourtant si densément riche. Vraiment, je vous en recommande la lecture. » Esther Paul, sur ma page Facebook, 28 juillet 2017.
 
 « Je me suis  plongée tête première dans ton livre sur Robertine Barry.  J'ai
 tout de suite été accrochée.  Comme je n'avais pas terminé un roman commencé
@@ -818,5 +824,8 @@ mes nièces, à mes amies. Il est à espérer que de nouveaux lecteurs et de
 nouvelles lectrices jouiront de votre roman.  Je me propose d'autres heures
 agréables à lire vos autres romans » - [Denise
 St-Jean](http://www.cyberpedago.blogspot.com).
+
+« Une excellente auteure et de plus avec le même ancêtre que moi : Antoine Roy. Son excellent roman Marie Major m’a touchée jusqu’au cœur. » Diane St-Laurent. Rimouski. Sur ma page Facebook, 28 juillet 2017.
+
 
 
