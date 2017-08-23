@@ -16,6 +16,8 @@ permalink: /lecteurs/
 
 « Encore une fois, j'ai été captivée par votre roman… que j’ai encore lu trop vite. Y aura-t-il une suite? Le grand-oncle de Clara lui prédit qu’elle est appelée à aider. Vous nous en donnez un aperçu à la fin puisqu’elle aide les femmes victimes de violence. Mais peut-être qu’une suite pourrait être développée en Nouvelle-France? » Joan Smith.
 
+« J'ai lu vos trois livres : la série Isa et Le châtiment de Clara. J’ai adoré les trois. Je suis une passionnée d'histoire. Vous décrivez tellement bien les émotions de vos personnages qu’ils viennent me chercher en plein cœur. Vous avez une très belle écriture avec beaucoup de vocabulaire. Merci pour ces belles lectures. » Marie-Josée Fortin.
+
 « Le septième livre de Sergine Desjardins, Le châtiment de Clara, traite d’une problématique millénaire : le viol des femmes. Le patriarcat existe depuis le début de l’humanité. Le patriarcat est le système socio-politique de subordination et d’oppression des femmes. À la fin de la lecture de ce livre, on entend la complainte de milliers de femmes de tous les temps et de tous les espaces qui dénonce la négation ou la minimisation du viol, la négation du non-consentement de la victime et le blâme de celle-ci. L’histoire se passe à la fin du 17e siècle et l’auteure a fait une recherche exceptionnelle au niveau historique, la démarche est rigoureuse et le sujet est traité avec sensibilité et justesse. » Raynald Horth. Ph.D. Terre-Neuve.
 
 « Chère Sergine. Je viens de terminer la lecture du “Châtiment de Clara”. En fait, je l’ai terminé il y a une semaine, mais ça m’a pris tout ce temps pour me sortir de ce siècle d’injustices qui jusqu’ici m’était totalement inconnu Quelle œuvre magistrale!
