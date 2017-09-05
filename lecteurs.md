@@ -94,7 +94,9 @@ Message sur Facebook, le 28 mai : « Je suis en train de lire Le châtiment de C
 
 « C’est un roman exceptionnel… Ton meilleur à date, Sergine. » Hélène Fortin. Sainte-Félicité.
 
-« Ça y est, Sergine. À 3 h. 30 cette nuit et en pleine insomnie, je suis plongée dans l’histoire de ta Clara à la lumière de ma lampe de poche (pour ne pars réveiller la maisonnée…). Les pages se tournent toutes seules. » Mona Andrée Rainville. 
+« Ça y est, Sergine. À 3 h. 30 cette nuit et en pleine insomnie, je suis plongée dans l’histoire de ta Clara à la lumière de ma lampe de poche (pour ne pars réveiller la maisonnée…). Les pages se tournent toutes seules. » Mona Andrée Rainville.
+
+« Je viens de terminer la lecture du livre Le châtiment de Clara. J’ai de la peine d’avoir terminé la lecture de ce livre. Clara va me manquer. Je m’appliquais à lire quelques pages à chaque jour comme une bonne amie qui est à l’écoute des malheurs de son amie Clara. Je tiens à féliciter l’auteure Sergine Desjardins pour ce roman qui me fait réaliser les difficultés que nos ancêtres féminins ont vécues, plus particulièrement à cause des viols et qu’il est impératif de ne jamais retourner en arrière, car malgré certains progrès c’est encore un rapport fragile avec la justice. Merci mon amie Sergine : tu m’as fait passer du bien bon temps. » Louise Authier. Sur sa page Facebook, 4 septembre 2017.
 
 
 # Concernant Isa:
