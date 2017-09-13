@@ -11,8 +11,6 @@ permalink: /agenda/
 
 11 octobre à 13:30 : Conférence. Tracadie au temps de la lèpre et violence faite aux femmes au 17e siècle. Société d’Histoire et de généalogie de Trois-Rivières, 100 rue de la Mairie. Trois-Rivières.
 
-16 septembre. Conférence. Les filles du Roy et leur époque. Association des Major-Bronton d’Amérique. Restaurant Chez Éric, 295, rue Saint-Paul. Montréal.
-
 30 avril, 14 heures : Conférence. Tracadie au temps de la lèpre et Viol au 17e siècle. Société d’Histoire et de généalogie de Matane. 320 Boul. Dion Ouest. 
 
 Salon du livre de Québec, horaire de mes séances de dédicaces : vendredi 7 avril : 13 à 14 et 15 à 16 h. Samedi, 8 avril : midi à 13 : 30 et 15 à 16 h. Dimanche 9 avril : midi à 13 et 14 à 15 h.
