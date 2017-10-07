@@ -58,6 +58,8 @@ Tu as tellement vécu dans ta tête dans ce Paris du 17ième siècle j’ai la c
 
 « Que de bons moments j'ai passé dans l'univers de Clara, où l'histoire et le roman se chevauchent sur 620 pages bien ficelées. Le châtiment de Clara est un autre grand livre de Sergine Desjardins. Félicitation pour cette œuvre dans laquelle tu t'es investie corps et âme pour notre plus grand plaisir. » Christiane Caron. Saint-Étienne-des-Grès.
 
+« J'en suis à l'épilogue et je n'ai pas hâte d'en arriver à la fin... Avez-vous prévu une suite pour vivre plus longuement l'histoire de Clara pour laquelle on a un véritable attachement? » Lisette Loubert. Message sur ma page Facebook. 6 octobre 2017.
+
 « Je viens de terminer la lecture (faite avec beaucoup de plaisir) de votre dernier roman "Le châtiment de Clara". Toutes mes sincères félicitations. Quelle époque bien difficile pour les femmes que vous décrivez avec une telle vivacité !!!  J'apprécie également le résultat des nombreuses recherches que vous avait dû faire sur le sujet. J'aime toujours apprendre du nouveau: je ne savais pas qui était la pourtant renommée peintre Artemisia Gentileschi. Lors d'un prochain voyage à Florence, je ne manquerai pas d'aller voir son tableau "Judith décapitant Holopherne" à la Galleria des Uffizi, ou même en Espagne à la cathédrale de Séville " Marie Madeleine comme mélancolie". Merci pour toutes ces heures d'intéressante lecture. » Diane Bonhomme Limoges. Espagne.
 
 « J’ai lu votre livre avec grand plaisir. J’attends le prochain avec envie et je dois aller porter votre volume à ma mère de 85 ans. Bonne journée. » Hélène Deschesne.
