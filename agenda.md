@@ -8,6 +8,22 @@ permalink: /agenda/
 
 ## 2017
 
+Salon du livre de Rimouski du 2 au 5 novembre :
+
+Jeudi : je participe à l’Activité On relie nos auteurs. Mezzanine Hydro-Québec : de 19 à 20 h.
+
+Vendredi :
+Dédicaces de 12 à 13 h.
+Entrevues, 14 h : Mezzanine Hydro-Québec 
+Dédicaces :  de 15 :30 à 16 :30
+
+Samedi : 
+Dédicaces :  14 à 15 h.
+Entrevue, 16 h : Mezzanine Hydro-Québec 
+
+Dimanche : 
+Dédicaces de 14 à 16 h.
+
 
 11 octobre à 13:30 : Conférence. Tracadie au temps de la lèpre et violence faite aux femmes au 17e siècle. Société d’Histoire et de généalogie de Trois-Rivières, 100 rue de la Mairie. Trois-Rivières.
 
