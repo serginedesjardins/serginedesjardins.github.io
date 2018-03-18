@@ -6,6 +6,10 @@ permalink: /agenda/
 
 # Calendrier des activités. 
 
+## 2018
+
+18 Janvier : conférence : Robertine Barry & Rosalie Cadron-Jetté. Société d'Histoire et de généalogie de Rimouski. Sous-sol de la bibliothèque Lisette-Morin à 19 h. 
+
 ## 2017
 
 Salon du livre de Rimouski du 2 au 5 novembre :
