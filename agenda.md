@@ -8,6 +8,10 @@ permalink: /agenda/
 
 ## 2018
 
+4 août 2018, 11 h : Conférence : Marie Major : une Fille du roy et son époque. Musée de la civilisation. Québec.
+
+Fin Juillet (date à confirmer) : Robertine Barry et son époque. Cour de circuit de l'Isle-Verte.
+
 18 Janvier : conférence : Robertine Barry & Rosalie Cadron-Jetté. Société d'Histoire et de généalogie de Rimouski. Sous-sol de la bibliothèque Lisette-Morin à 19 h. 
 
 ## 2017
