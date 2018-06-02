@@ -134,6 +134,8 @@ Il y a aussi:
 
 - Dorimène Desjardins, co-fondatrice, avec son époux Alphonse Desjardins, des
   <a href="http://www.desjardins.com">Caisses Populaires Desjardins</a>.
+  
+- Irma Levasseur, première femme médecin québécoise.
 
 - <a href="http://www.centrerosaliecadronjette.org/">Rosalie Jetté, (1794-1864)</a>, la fondatrice de la première maternité montréalaise, l'Hospice de Sainte-Pélagie, mieux connue sous le nom de Miséricorde. Cette maternité était la seule à accueillir les filles-mères.
 
