@@ -10,6 +10,8 @@ Le châtiment de clara. <a href="http://www.saint-jeanediteur.com/" target="_bla
 
 Isa. L'île des exclus. <a href="http://www.saint-jeanediteur.com/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN-13: 9782894557273, 2014.
 
+Isa. L'île de l'Ermite. <a href="http://www.saint-jeanediteur.com/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN-13: 9782894558317, 2014.
+
 Marie Major. Pocket. ISBN: 9782226223027, 2013.
 
 Marie Major (Réédition). <a href="http://www.franceloisirs.com/" target="_blank">France Loisirs</a>. ISBN-13: 9782298045963, 2011.
@@ -150,8 +152,6 @@ Il y a aussi:
 - Mario Dumont. Animateur de télévision et ex-politicien.
 
 - L'écrivaine <a href="http://aurelielaflamme.com/livres/auteure/">India Desjardins</a>.
-
-- <a href="http://ginadesjardins.wordpress.com/">Gina Desjardins</a>, la geek la plus en vogue en nouvelles technologies.
 
 - L'auteure-compositeure-interprète <a href="http://www.coeurdepirate.com/">Coeur de Pirate (Béatrice Martin)</a>.
 
