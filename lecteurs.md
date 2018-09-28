@@ -8,8 +8,6 @@ permalink: /lecteurs/
 
 « J’ai terminé la lecture de ton roman «Le châtiment de Clara». Vraiment, tu as un talent remarquable pour ficeler une histoire qui nous tienne en haleine du début à la fin, doublé d’un réel talent de pédagogue. J’aime acquérir des connaissance à travers mes lectures et avoir l’opportunité de nourrir ma réflexion, ce que tu offres généreusement par l’imposante recherche qui appuie en général tes romans.» Yvonnick Roy.
 
-« J'ai adoré ce livre. Non seulement suis-je passée par toute une gamme d'émotions, mais j'ai aussi énormément appris sur la façon dont les femmes, les enfants, les pauvres, "les sorcières", etc…, étaient traités à cette époque pas si lointaine. On oublie à quel point, au fil du temps, ceux qui sont passés avant nous ont dû se tenir debout, se battre et faire preuve d'énormément de courage pour faire changer les choses. Personne de notre génération aujourd'hui ne pourrait bénéficier d'autant de liberté si ces gens de cœur n'avaient pas existé et sacrifié autant. Malheureusement, on ne réalise pas ça, on croit faussement que tout est acquis. Merci Sergine Desjardins de faire toutes ces recherches pointues avec tant d'acharnement et de passion afin de nous broder à l'aide de personnages sincèrement attachants, de si magnifiques histoires. » Chantal Desjardins. Matane. Message sur Facebook, 29 mai 2017. Le 25 avril 2017, elle écrivait : « Message à tous mes amis (et particulièrement à toi Ém Thib qui as adoré "Marie Major"), vous devez lire son dernier roman qui vient de sortir le 5 avril dernier. Je ne l'ai pas tout à fait terminé (ce qui ne saurait tarder) mais je peux déjà confirmer que c'est son meilleur. Je peux vous garantir une vaste gamme d'émotions, entre tendresse et rage profonde, plongé dans ce siècle, pas si lointain d'ailleurs, où j'aurais très probablement finie brûlée vive sur le bûcher. Quelle superbe plume tu as Sergine Desjardins. Je n'ose imaginer toutes ces heures consacrées aux recherches historiques ainsi que celles passées à ta table de travail pour arriver à ce bijou. Comme j'aimerais pouvoir me balader dans ta tête, juste une fois, pour voir comment naissent de si belles œuvres. » Chantal Desjardins. Matane.
-
 «Bonjour madame Desjardins. Je viens de terminer les deux livres achetés au Salon de livre de Rimouski : Le châtiment de Clara et Marie Major.  Un peu de romance et beaucoup d’histoire: un mélange irrésistible. Très belle écriture.» Michelle Duchesne.
 
 « Le châtiment de Clara …. Le châtiment d’une victime, dont le crime a été de ne pas accepter qu’un homme lui fasse subir les derniers outrages, d’en être malheureuse et de s’en plaindre. En lisant ce livre de Sergine Desjardins, j’avais le sentiment, en tant que femme, de marcher sur un chemin parallèle à celui de Clara, de lui tenir la main, en pensée, à des siècles de distance. Je ressentais sa colère, sa détresse devant le pouvoir que s’accordait, sur les femmes, la plupart des hommes de son époque (et encore trop d’hommes de la nôtre). Roman historique, roman aussi si actuel, roman de suspense, roman d’amour, riche de détails émanant d’une recherche intensive et honnête, bouleversant par les jugements portés et les décisions prises, Le châtiment de Clara révèle, comme ses autres écrits, le grand talent de son auteure. Sergine, merci. En nous révélant la vie des femmes d’une autre époque, tu renforces notre désir et notre détermination d’améliorer, de changer la vie des femmes d’aujourd’hui, de toutes les femmes de notre, parfois, si incompréhensible monde. » Diane Laurendeau Beaulieu. Repentigny.
@@ -76,8 +74,6 @@ Tu as tellement vécu dans ta tête dans ce Paris du 17ième siècle j’ai la c
 
 « Je peux vous dire que c’est très bon. Je suis passée par toutes sortes d’émotions. Il est captivant et je l’ai lu en trois jours : on veut toujours savoir ce qui va arriver. Je vous conseille de l’acheter car ce roman est excellent. Merci Sergine. J’ai hâte de lire ton prochain livre. » Raymonde D. Jean. Rimouski. 
 
-« C’est un roman exceptionnel. Ton meilleur, Sergine. Il est tellement bon que je voudrais ne jamais le terminer. Il faudrait en faire une série à Radio-Canada. Mais les convaincre, c’est une autre histoire ! » Hélène Fortin. Sainte-Félicité.  
-
 « Je lis le livre de Sergine Desjardins Le châtiment de Clara. Je suis incapable de m’arrêter de lire tellement j’aime cette histoire et la beauté de l’écriture de Sergine. J’aime Le châtiment de Clara, comme j’ai aimé Marie Major. Je n’ai pas fini de lire ce beau livre et j’ai l’impression de vivre à Paris, pas très loin de la Seine, en 1688. » J.A. Lévesque. Rimouski.
 
 « Je viens de le commencer et je suis triste de devoir le laisser reposer un peu. Le récit est diablement bien ficelé ! » Quelques jours plus tard : « Bon anniversaire chère Sergine. Suis en retard parce que j’étais plongée jusqu’au cou dans ton dernier roman. Impossible de le lâcher. Je suis passée par toute la gamme des émotions. Pas reposant ! Félicitations, tu as bien réussi d’autant qu’on peut y superposer les temps actuels sans mal. » Huguette Loubert, Montréal.
@@ -98,8 +94,6 @@ Commentaires au fil de sa lecture de Madeleine Gagnon : « Je suis avec Clara de
 
 « J’adore. » Sylvie Bouffard-Gravel. Montréal.
 
-« Excellent. C’est le meilleur de ta collection, Sergine. Bravo ! » Monique Fournier. Matane. 
-
 Message sur Facebook, le 28 mai : « Je suis en train de lire Le châtiment de Clara. J'adore ! Je me couche tard, ha ha ! Vos romans sont tellement touchants. C'est mon style de lecture. À quand le prochain ? Je suis consciente que vos romans demandent beaucoup de recherches et un grand coeur pour venir nous attendrir comme vous le faites. » René Audet. Québec.
  
 « Je viens tout juste de terminer ce livre qui m’a profondément touchée. J’ai aussi été très choquée par moment en pensant à toutes les femmes de cette époque à qui on refusait de rendre justice. Merci pour ce bel ouvrage, Mme Desjardins. Vous réussissez à nous amener avec vous dans cette époque que vous décrivez si bien. » Marie-Paule Kemp. 
@@ -110,36 +104,27 @@ Message sur Facebook, le 28 mai : « Je suis en train de lire Le châtiment de C
 
 « Je viens de terminer la lecture du livre Le châtiment de Clara. J’ai de la peine d’avoir terminé la lecture de ce livre. Clara va me manquer. Je m’appliquais à lire quelques pages à chaque jour comme une bonne amie qui est à l’écoute des malheurs de son amie Clara. Je tiens à féliciter l’auteure Sergine Desjardins pour ce roman qui me fait réaliser les difficultés que nos ancêtres féminins ont vécues, plus particulièrement à cause des viols et qu’il est impératif de ne jamais retourner en arrière, car malgré certains progrès c’est encore un rapport fragile avec la justice. Merci mon amie Sergine : tu m’as fait passer du bien bon temps. » Louise Authier. Sur sa page Facebook, 4 septembre 2017.
 
+« J'ai adoré ce livre. Non seulement suis-je passée par toute une gamme d'émotions, mais j'ai aussi énormément appris sur la façon dont les femmes, les enfants, les pauvres, "les sorcières", etc…, étaient traités à cette époque pas si lointaine. On oublie à quel point, au fil du temps, ceux qui sont passés avant nous ont dû se tenir debout, se battre et faire preuve d'énormément de courage pour faire changer les choses. Personne de notre génération aujourd'hui ne pourrait bénéficier d'autant de liberté si ces gens de cœur n'avaient pas existé et sacrifié autant. Malheureusement, on ne réalise pas ça, on croit faussement que tout est acquis. Merci Sergine Desjardins de faire toutes ces recherches pointues avec tant d'acharnement et de passion afin de nous broder à l'aide de personnages sincèrement attachants, de si magnifiques histoires. » Chantal Desjardins. Matane. Message sur Facebook, 29 mai 2017. Le 25 avril 2017, elle écrivait : « Message à tous mes amis (et particulièrement à toi Ém Thib qui as adoré "Marie Major"), vous devez lire son dernier roman qui vient de sortir le 5 avril dernier. Je ne l'ai pas tout à fait terminé (ce qui ne saurait tarder) mais je peux déjà confirmer que c'est son meilleur. Je peux vous garantir une vaste gamme d'émotions, entre tendresse et rage profonde, plongé dans ce siècle, pas si lointain d'ailleurs, où j'aurais très probablement finie brûlée vive sur le bûcher. Quelle superbe plume tu as Sergine Desjardins. Je n'ose imaginer toutes ces heures consacrées aux recherches historiques ainsi que celles passées à ta table de travail pour arriver à ce bijou. Comme j'aimerais pouvoir me balader dans ta tête, juste une fois, pour voir comment naissent de si belles œuvres. » Chantal Desjardins. Matane.
+
+« Excellent. C’est le meilleur de ta collection, Sergine. Bravo ! » Monique Fournier. Matane. 
+
+« C’est un roman exceptionnel. Ton meilleur, Sergine. Il est tellement bon que je voudrais ne jamais le terminer. Il faudrait en faire une série à Radio-Canada. Mais les convaincre, c’est une autre histoire ! » Hélène Fortin. Sainte-Félicité.  
 
 # Concernant Isa:
 
-« Je viens de terminer la lecture de Isa, l'île de l'ermite. Je 
-l'ai dévoré! L'île de l'ermite n'est pas l'oeuvre d'une historienne qui écrit 
-un roman. Vous êtes une authentique romancière qui plonge ses personnages dans 
-une autre réalité spatio-temporelle. Certains passages où Isa réfléchit à sa 
-vie m'ont bouleversée. Merci et continuez à écrire, s'il vous plaît!» - France Lapierre. Laval.
+« Je viens de terminer la lecture de Isa, l'île de l'ermite. Je l'ai dévoré! L'île de l'ermite n'est pas l'oeuvre d'une historienne qui écrit un roman. Vous êtes une authentique romancière qui plonge ses personnages dans une autre réalité spatio-temporelle. Certains passages où Isa réfléchit à sa vie m'ont bouleversée. Merci et continuez à écrire, s'il vous plaît!» - France Lapierre. Laval.
 
- « Je voulais vous dire que j'ai adoré votre livre Isa. L'île
-des exclus t.1. Je trouve que c'est un livre rempli d'émotions avec des
-personnages très attachants. Étant plus jeune je n'aimais pas beaucoup lire,
-maintenant je lis plus, mais quand je commence un livre et que je ne l'aime
-pas, je suis incapable de le finir. Votre livre par contre, c'est tout le
-contraire : je veux le lire au plus vite, puisque je suis si impatiente de
-savoir ce qui va arriver à Isa et à Fanny etc... Je trouve le livre très
-touchant et j'aime le fait que ce n'est pas juste l'histoire d'Isa, mais
-aussi celle de ses soeurs et de sa famille. Je suis vraiment contente d'être
-tombée sur vous et vos livres. Je suis impatiente et j'ai vraiment hâte de
-lire le tome 2. » - Alexandra Suchecki.
+ « Je voulais vous dire que j'ai adoré votre livre Isa. L'île des exclus t.1. Je trouve que c'est un livre rempli d'émotions avec des
+personnages très attachants. Étant plus jeune je n'aimais pas beaucoup lire, maintenant je lis plus, mais quand je commence un livre et que je ne l'aime pas, je suis incapable de le finir. Votre livre par contre, c'est tout le contraire : je veux le lire au plus vite, puisque je suis si impatiente de savoir ce qui va arriver à Isa et à Fanny etc... Je trouve le livre très touchant et j'aime le fait que ce n'est pas juste l'histoire d'Isa, mais aussi celle de ses soeurs et de sa famille. Je suis vraiment contente d'être
+tombée sur vous et vos livres. Je suis impatiente et j'ai vraiment hâte de lire le tome 2. » - Alexandra Suchecki.
 
 « Mille bravos, pour vos deux livres de Isa. J'ai dévoré le premier, et je suis en train de goûter au deuxième, qui semble aussi bon que le tome 1. Merci de me faire passer de si beaux moments en vous lisant. J'adore l'histoire de notre pays. Je suis généalogiste, donc tout ce qui se rattache à nous me passionne. Je n'ai jamais lu un livre parlant de la lèpre ici au canada. On s'imagine que cela ne nous atteint pas. J'étais si heureuse de pouvoir vous lire à nouveau. Car j'ai lu Marie Major, il y a plusieurs années. Mille mercis et poursuivez votre beau travail, vous me passionnez. » - Lucie St-Germain
 
 « J'ai terminé ce matin la lecture du deuxième tome de ton roman Isa, l'île de l'ermite. Je veux d'abord souligner le courage de l'auteure pour avoir abordé un sujet aussi troublant et pathétique que la léproserie de Tracadie, dont j'ignorais totalement l'existence, croyant que la lèpre, cette terrible maladie, ne se rencontrait essentiellement que dans les pays chauds du pourtour de la méditerranée... Les conditions de vie sordides des lépreux et les perceptions médicales et sociales particulièrement cruelles de l'époque exigent certainement beaucoup d'empathie et de compassion de la part du lecteur... Mais la rédemption des principaux personnages et les promesses de vie heureuse qui s'ensuivent allègent heureusement le tout... J'ai pour ma part beaucoup de plaisir à connaître les valeurs de l'auteure à travers les réflexions de ses personnages, valeurs, idées et sentiments qui me rejoignent bien souvent... Merci encore une fois Sergine pour ce travail colossal empreint d'humanité. » - Yvonnick Roy.
  
-
 « Je viens de terminer la lecture de Isa. Un gros merci pour cette page d'histoire et merci pour toutes les recherches que vous avez faites. C'est  un beau cadeau pour les amoureux de l'histoire. » - Marie Sirois
 
 « Chère romancière. Merci pour une belle page de notre histoire dans ISA et aussi chez Marie Major. Je suis membre de AFROY-A ou j'ai vu l'annonce de vos oeuvres littéraires. Je me réjouis de reconnaître le caractère des ROY dans cette tranche de nos ancêtres. Au plaisir de lire le 2me tome de ISA. Grand merci. » -  Édouard Banville.
-
 
 « Très chère madame Sergine. Je viens, à l'instant même, de terminer le tome 2 de Isa.  Je suis toute retournée, touchée, émue.  À deux occasions, j'ai pleuré ( c'est seulement la deuxième fois que je pleure, suite à une lecture ).  Pourtant, des livres j'en lis "à la tonne". J'ai appris énormément sur cette tragédie; les références auxquelles vous faites allusion apportent de l'authenticité à votre récit. Madame, les mots me manquent pour vous dire tout le bonheur, le plaisir que vous m'avez procurés. Vous faites partie de mes auteurs préférés et ai hâte de vous lire à nouveau. » - Ginette Lavallée.
 
