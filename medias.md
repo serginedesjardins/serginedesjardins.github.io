@@ -55,21 +55,9 @@ Article publié dans Le Journal de Québec, 28 mai 2017 : http://www.journaldequ
 d'époque [...] Le livre s'appelle Robertine Barry et c'est, comme vous l'avez
 vu, passionnant. » Commentaire de Joël Le Bigot à la fin de mon entrevue avec lui : Pourquoi pas dimanche. 9 mai 2010.
 
-« En 1907, se crée à Montréal le premier organisme féministe canadien-français
-: la Fédération nationale Saint-Jean-Baptiste. Les dames patronnesses qui
-l'animent, à l'ombre de l'archevêché, n'osent douter que Dieu ait modelé Ève à
-partir d'une côte d'Adam. Mais, au congrès de fondation, une conférencière cite
-Mark Twain au lieu de la Bible : Ce que l'on a trouvé de mieux pour façonner
-l'homme, c'est la femme. La conférencière insolente s'appelle Robertine Barry
-(1863-1910), connue sous le pseudonyme de Françoise. Sa biographie, Sergine
-Desjardins, qui raconte l'anecdote, complète, par un second tome, l'ouvrage le
-plus riche consacré à cette pionnière du journalisme féminin au Québec,
-notamment éditrice, entre 1902 et 1909, du bimensuel Le Journal de Françoise.
-Comme le précédent, le volume est si documenté, si vivant que l'on pardonne à
-l'historienne, influencée par l'art romanesque, de s'inspirer parfois de
-probabilités au lieu de s'appuyer sur des faits avérés. D'ailleurs, elle prend
-alors les précautions nécessaires en exprimant un doute. » - Michel Lapierre.
-Le Devoir, 20 mars 2011.
+« En 1907, se crée à Montréal le premier organisme féministe canadien-français : la Fédération nationale Saint-Jean-Baptiste. Les dames patronnesses qui l'animent, à l'ombre de l'archevêché, n'osent douter que Dieu ait modelé Ève à partir d'une côte d'Adam. Mais, au congrès de fondation, une conférencière cite Mark Twain au lieu de la Bible : Ce que l'on a trouvé de mieux pour façonner
+l'homme, c'est la femme. La conférencière insolente s'appelle Robertine Barry (1863-1910), connue sous le pseudonyme de Françoise. Sa biographie, Sergine Desjardins, qui raconte l'anecdote, complète, par un second tome, l'ouvrage le plus riche consacré à cette pionnière du journalisme féminin au Québec, notamment éditrice, entre 1902 et 1909, du bimensuel Le Journal de Françoise. Comme le précédent, le volume est si documenté, si vivant que l'on pardonne à l'historienne, influencée par l'art romanesque, de s'inspirer parfois de
+probabilités au lieu de s'appuyer sur des faits avérés. D'ailleurs, elle prend alors les précautions nécessaires en exprimant un doute. » - Michel Lapierre. Le Devoir, 20 mars 2011.
 
 « Le premier volet de cette biographie, malgré son intérêt certain nous avait
 laissé songeur. Ce deuxième tome emporte d'emblée l'adhésion; même qu'il donne
