@@ -51,6 +51,10 @@ Article publié dans Le Journal de Québec, 28 mai 2017 : http://www.journaldequ
 
 # Critiques de Robertine Barry
 
+« Ce qui est intéressant quand on lit votre livre c'est qu'on a un portrait
+d'époque [...] Le livre s'appelle Robertine Barry et c'est, comme vous l'avez
+vu, passionnant. » À la fin de mon entrevue avec Joël Le Bigot. Pourquoi pas dimanche. 9 mai 2010.
+
 « En 1907, se crée à Montréal le premier organisme féministe canadien-français
 : la Fédération nationale Saint-Jean-Baptiste. Les dames patronnesses qui
 l'animent, à l'ombre de l'archevêché, n'osent douter que Dieu ait modelé Ève à
@@ -92,10 +96,6 @@ temps qu'on accorde à Françoise (pseudonyme de Robertine Barry) une attention
 particulière, car elle a inauguré chez nous la lutte en faveur de
 l'émancipation du rôle des femmes dans notre société. À lire sans faute. » -
 Aurélien Boivin. Québec français. Automne 2010.
-
-« Ce qui est intéressant quand on lit votre livre c'est qu'on a un portrait
-d'époque [...] Le livre s'appelle Robertine Barry et c'est, comme vous l'avez
-vu, passionnant. » - Joël Le Bigot. Pourquoi pas dimanche. 9 mai 2010.
 
 « Robertine Barry : un nom qui nous est complètement inconnu, mais qui devrait
 faire partie de notre mémoire collective. Cette femme, qui a vécu à la fin du
