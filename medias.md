@@ -202,8 +202,7 @@ y sont traités éclairent le lecteur sur la vie dans l'univers journalistique,
 artistique, politique et littéraire de la fin du X1Xe siècle. » - Robert
 Dumont. [Journal l'Horizon](http://www.journallhorizon.com). Avril 2011.
 
-« Robertine Barry de Sergine Desjardins, un solide coup de coeur. »
-- Marico : [marico-marico.blogspot.com](http://marico-marico.blogspot.com)
+« Robertine Barry de Sergine Desjardins, un solide coup de coeur. » Marico : [marico-marico.blogspot.com](http://marico-marico.blogspot.com)
 
 « La biographie de Sergine Desjardins est très bien écrite et très agréable à
 lire.  L'auteure ne se contente pas d'aligner platement des faits et des dates.
@@ -230,8 +229,7 @@ désormais dans le panthéon personnel de mes coups de coeur.  Je vais la lire e
 la relire tant elle est venue nourrir ma réflexion.  Je la recommande à tout
 lecteur curieux et désireux d'apprendre, car elle représente un bon équilibre
 entre le divertissement et l'information.  Et le deuxième tome, On l'appelait
-Monsieur, est déjà dans ma Pile À Lire!. »
-- Opaline. <a href="http://biblimaginaire.blogspot.com">biblimaginaire.blogspot.com</a>.
+Monsieur, est déjà dans ma Pile À Lire!. » Opaline. <a href="http://biblimaginaire.blogspot.com">biblimaginaire.blogspot.com</a>.
 
 # Critiques de Marie Major
 
