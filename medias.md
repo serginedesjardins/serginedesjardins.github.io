@@ -53,7 +53,7 @@ Article publié dans Le Journal de Québec, 28 mai 2017 : http://www.journaldequ
 
 « Ce qui est intéressant quand on lit votre livre c'est qu'on a un portrait
 d'époque [...] Le livre s'appelle Robertine Barry et c'est, comme vous l'avez
-vu, passionnant. » À la fin de mon entrevue avec Joël Le Bigot. Pourquoi pas dimanche. 9 mai 2010.
+vu, passionnant. » Commentaire de Joël Le Bigot à la fin de mon entrevue avec lui : Pourquoi pas dimanche. 9 mai 2010.
 
 « En 1907, se crée à Montréal le premier organisme féministe canadien-français
 : la Fédération nationale Saint-Jean-Baptiste. Les dames patronnesses qui
