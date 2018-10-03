@@ -32,52 +32,19 @@ Article publié dans Le Journal de Québec, 28 mai 2017 : http://www.journaldequ
 
 # Critiques de Isa. L'île des exclus
 
-« En 1844 s'ouvrait un lazaret pour soigner les personnes atteintes de la lèpre
-sur l'île de Sheldrake au Nouveau-Brunswick. Les familles déchirées ont vu
-leurs parents, leurs enfants leur être enlevés pour être isolés dans ce lieu
-qui tenait bien plus de la prison que de l'hôpital. Parmi ces malheureux: Isa
-qui n'est pourtant pas touchée par la maladie, Isa qui vit en recluse...
-Parviendra-t-elle à retrouver ses soeurs Juliette et Fanny? Des personnages
-très attachants, un pan de l'Histoire du pays méconnu, des recherches
-impressionnantes: les clés pour un roman historique réussi ! » - [Chrystine
-Brouillet](http://tva.canoe.ca/emissions/salutbonjour/chroniques/sbwe/bouquineries/222921/chrystine-part-a-la-rencontre-des-lecteurs)
+« En 1844 s'ouvrait un lazaret pour soigner les personnes atteintes de la lèpre sur l'île de Sheldrake au Nouveau-Brunswick. Les familles déchirées ont vu leurs parents, leurs enfants leur être enlevés pour être isolés dans ce lieu qui tenait bien plus de la prison que de l'hôpital. Parmi ces malheureux: Isa qui n'est pourtant pas touchée par la maladie, Isa qui vit en recluse... Parviendra-t-elle à retrouver ses soeurs Juliette et Fanny? Des personnages très attachants, un pan de l'Histoire du pays méconnu, des recherches impressionnantes: les clés pour un roman historique réussi ! » - [Chrystine Brouillet](http://tva.canoe.ca/emissions/salutbonjour/chroniques/sbwe/bouquineries/222921/chrystine-part-a-la-rencontre-des-lecteurs)
 
-« Auteure du roman primé Marie Major, Sergine Desjardins transporte les
-lecteurs sur l'île Sheldrake, au Nouveau-Brunswick, où des lépreux ont été
-déportés au milieu des années 1800. Le tome un de la série Isa, l'île des
-exclus, lève le voile sur une période très peu connue de notre histoire. (...)
-Sergine Desjardins, une écrivaine à la plume alerte et agréable, s'est beaucoup
-documentée sur les traitements médicaux de la lèpre à cette époque et a lu
-plusieurs biographies. » - Marie-France Bornais. Le Journal de Québec, dimanche
+« Auteure du roman primé Marie Major, Sergine Desjardins transporte les lecteurs sur l'île Sheldrake, au Nouveau-Brunswick, où des lépreux ont été déportés au milieu des années 1800. Le tome un de la série Isa, l'île des exclus, lève le voile sur une période très peu connue de notre histoire. (...) Sergine Desjardins, une écrivaine à la plume alerte et agréable, s'est beaucoup documentée sur les traitements médicaux de la lèpre à cette époque et a lu plusieurs biographies. » - Marie-France Bornais. Le Journal de Québec, dimanche
 25 mai 2014.
 
-« Isa, L’île des exclus est une saga absolument poignante dans laquelle il sera
-largement question de la petitesse d’âme et de coeur chez nombre de gens et
-inversement de la grandeur d’autres, un roman historique qui nous ramène en
-1844, époque où la médecine et les croyances religieuses soupèsent les
-décisions au nom de tous, soi-disant pour le bien de tous, mais comme
-aujourd’hui telles décisions sont souvent motivées par les intérêts quels
-qu’ils soient des décideurs organisateurs des conditions de vie pour la
-majorité qui aideraient sans que cela paraisse à leur moyen personnel de faire
-fortune et tous les moyens sont bons quand les populations sont confiantes et
-ne se doutent pas des réseaux les plus crapuleux qui ont cours dans les plus
-belles résidences et sous les enseignes les plus nobles. » - [Jacqueline
-Mallette](http://montreal157.wordpress.com).
+« Isa, L’île des exclus est une saga absolument poignante dans laquelle il sera largement question de la petitesse d’âme et de coeur chez nombre de gens et inversement de la grandeur d’autres, un roman historique qui nous ramène en 1844, époque où la médecine et les croyances religieuses soupèsent les décisions au nom de tous, soi-disant pour le bien de tous, mais comme aujourd’hui telles décisions sont souvent motivées par les intérêts quels qu’ils soient des décideurs organisateurs des conditions de vie pour la majorité qui aideraient sans que cela paraisse à leur moyen personnel de faire fortune et tous les moyens sont bons quand les populations sont confiantes et ne se doutent pas des réseaux les plus crapuleux qui ont cours dans les plus belles résidences et sous les enseignes les plus nobles. » - [Jacqueline Mallette](http://montreal157.wordpress.com).
 
-« Sergine Desjardins plonge le lecteur au coeur d'une histoire bouleversante de
-courage et d'espoir qui lève le voile sur une page à la fois troublante et
-fascinante du passé. » - Romain Pelletier. La Voix de la Matanie. 4 juin 2014.
+« Sergine Desjardins plonge le lecteur au coeur d'une histoire bouleversante de courage et d'espoir qui lève le voile sur une page à la fois troublante et fascinante du passé. » - Romain Pelletier. La Voix de la Matanie. 4 juin 2014.
 
-« Cette série de deux romans de l'auteure de Marie Major se déroule sur une île
-où sont envoyés les lépreux. Isa, une adolescente, est envoyée sur cette île
-puisqu'on la soupçonne à tort d'avoir cette maladie. Ce roman est une histoire
-de courage et d'espoir." Suggestions de lectures pour les vacances d'été. » -
+« Cette série de deux romans de l'auteure de Marie Major se déroule sur une île où sont envoyés les lépreux. Isa, une adolescente, est envoyée sur cette île puisqu'on la soupçonne à tort d'avoir cette maladie. Ce roman est une histoire de courage et d'espoir." Suggestions de lectures pour les vacances d'été. » -
 [Pause Lecture juin 2014](http://www.pauselecture.net).
 
-« Premier tome d’un diptyque historique prenant, L’île des exclus tiendra les
-lecteurs en haleine du début à la fin puisque profondément attachés à Isa, ils
-la suivront dans son dangereux et injuste périple. »
-- [Christiane Dubreuil](http://info-culture.biz)
+« Premier tome d’un diptyque historique prenant, L’île des exclus tiendra les lecteurs en haleine du début à la fin puisque profondément attachés à Isa, ils la suivront dans son dangereux et injuste périple. » - [Christiane Dubreuil](http://info-culture.biz)
 
 « On l’attendait, et bien, il est arrivé, le tome 2, d’Isa, l’île des exclus, qui nous raconte presque une histoire vraie, inspirés de faits réels, qui sont bien détaillés dans l’ouvrage. Nous sommes en 1847. Alors que les lépreux sont transférés de l’île Sheldrake au nouveau lazaret de Tracadie, Isa, toujours bien portante, perd espoir. Bien que la maladie ne semble avoir aucune emprise sur la jeune femme, l’isolement, et un pénible quotidien, l’affectent au plus profond d’elle-même. Sa mère, Charlotte, est prête à tout pour sauver sa fille. Ses sœurs, en cette époque d’interdits, de silence et de jugement divin, tentent elles aussi de surmonter tant bien que mal les épreuves : Fanny, l’aînée, dont la petite Élizabeth a été enlevée et Juliette, la benjamine, qui rêve d’étudier la médecine. (…) Dernier tome de la série Isa, L’île de l’ermite nous entraîne dans la noirceur d’un autre âge, pourtant pas si lointain, ou injustice et adversité côtoient espoir et courage. Un bon roman, bien écrit, sur une réalité qu’on ne pensait pas avoir eu au Canada. On l’a lu en vacances, sur les bords du fleuve, justement une partie de l’histoire s’y déroule, le cadre était parfait. Il a fait l'unanimité de notre comité mixte de lecture. » André Maccabé, Cité Boomers, 14 août 2014.
 
