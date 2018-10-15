@@ -375,11 +375,11 @@ filles aux moeurs légères, des prostituées. Certes, il y en avait. Cependant,
 ces filles étaient envoyées en Nouvelle-France pour peupler le pays. Le roman
 donne envie de se  documenter sur cet aspect de l'histoire. J'ai bien envie de
 lire le livre de Yves Landry sur les Filles du roi. Si cet aspect de l'histoire
-vous intéresse, ce roman est assurément à découvrir!. » <b>9/10</b> - <a
+vous intéresse, ce roman est assurément à découvrir! » 9/10 - <a
 href="http://biblioallie.canalblog.com/archives/2006/09/09/2642178.html"
 target="_blank">La bibliothèque d'Allie</a>, 9 Septembre 2006.
 
-<b>Inspirée  par son ancêtre</b>. La généalogie mène à tout, même à la
+Inspirée  par son ancêtre. La généalogie mène à tout, même à la
 littérature. C'est le cas de Sergine Desjardins qui vit à Rimouski. Elle nous
 fait cadeau d'un beau roman historique inspiré par son ancêtre Marie Major,
 fille du Roy et qui épousera dès son arrivée en Nouvelle-France Antoine Roy dit
@@ -438,7 +438,7 @@ aurait presque envie de vivre à cette époque qui était loin d'être facile. L
 seul petit bémol de ma lecture est que j'ai trouvé la première partie (le
 procès) un peu longue. Mais que ça ne vous empêche pas de lire ce roman! Vous y
 apprendrez tout plein de choses sur la vie en Nouvelle-France tout en lisant
-une histoire palpitant. » <b>4.5/5</b> - <a
+une histoire palpitant. » 4.5/5 - <a
 href="http://chezfrisette.blogspirit.com/litterature_quebecoise ">Passionnate
 Littérature. Coups de coeurs littéraire de Frisette. 17 juin 2007 </a>
 
@@ -450,8 +450,7 @@ primait sur tout. Elle a écrit une histoire captivante inspirée par le vécu d
 femmes de cette époque mais en y mêlant une romance tout à fait plausible.
 Aussi passionnant qu'un polar moderne, ce livre de près de 500 pages fait état
 d'une époque heureusement révolue où le clergé exerçait une influence
-indéniable faisant peu de cas de l'intelligence des femmes. Un livre à lire. »
-- Claudette Dorval. Le Saint-Laurent Portage. 3 juin 2006.
+indéniable faisant peu de cas de l'intelligence des femmes. Un livre à lire. » - Claudette Dorval. Le Saint-Laurent Portage. 3 juin 2006.
 
 « Marie Major. C'est un excellent bouquin. » - France Gauthier. Le livre Show.
 21 juillet 2006
@@ -484,7 +483,7 @@ chef-d'oeuvre. Vous allez adorer ça. » - Ginette Michaud. Chronique Plaisir de
 Lire. Radio Boomer, 1570 Am.
 
 « Filles du roi, métiers de l'époque comme celui de tonnelier, de sage-femme,
-de chirurgien, <b>Marie Major</b> évoque mille et un détails de la vie en
+de chirurgien, Marie Major évoque mille et un détails de la vie en
 Nouvelle-France. Ces personnages dramatiques, mais authentiques, ont été mis en
 scène par une de leur descendante, Sergine Desjardins. Ce couple d'ancêtres
 compte notamment parmi ces descendants des Gagnon, Hudon-Beaulieu,
@@ -493,8 +492,7 @@ pour l'histoire. » - Louise Chevrier. La Terre de chez-nous.
 
 « À lire : Marie Major. Une affaire d'assassinat du temps des Filles du roi :
 fondée sur des documents notariés de la fin du 17e siècle, une histoire d'amour
-campée dans le décor de la ville de Québec à l'époque de la Nouvelle-France. »
-- Entre les lignes. Automne 2006.
+campée dans le décor de la ville de Québec à l'époque de la Nouvelle-France. » - Entre les lignes. Automne 2006.
 
 « Je vais vous parler des bons auteurs qu'on a à l'affiche, parmi nos meilleurs
 vendeurs (....) Il y a Marie Major de Sergine Desjardins. C'est un roman
