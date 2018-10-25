@@ -112,6 +112,8 @@ Message sur Facebook, le 28 mai : « Je suis en train de lire Le châtiment de C
 
 # Concernant Isa:
 
+« Bonjour Mme Desjardins. J’ai eu l’occasion il y a plusieurs années de visiter la léproserie de Tracadie. À cette époque, je m’intéressais à ma généalogie et j’ai alors découvert que j’étais un descendant d’Ursule Landry, personnage dont vous glissez quelques mots sous un autre nom dans votre roman. Cette dame, vous le savez sans doute, avait eu des enfants avant d’être victime de la lèpre, dont 2 fils qui, je croie,  auraient vécu l’enfer de Sheldrake. Elle aurait aussi eu des filles et l’une d’elles serait une de mes ancêtres. J’avais donc eu connaissance du drame vécu au cœur de Tracadie (Sans jamais avoir entendu parler plus précisément de Beaubair par contre) mais jamais, au grand jamais, sans la lecture de votre roman, je n’aurais pu comprendre la souffrance de tous ces gens touchés directement ou indirectement par la lèpre. Merci de me l’avoir si bien racontée.» Renaud Thomas
+
 « Je viens de terminer la lecture de Isa, l'île de l'ermite. Je l'ai dévoré! L'île de l'ermite n'est pas l'oeuvre d'une historienne qui écrit un roman. Vous êtes une authentique romancière qui plonge ses personnages dans une autre réalité spatio-temporelle. Certains passages où Isa réfléchit à sa vie m'ont bouleversée. Merci et continuez à écrire, s'il vous plaît!» - France Lapierre. Laval.
 
  « Je voulais vous dire que j'ai adoré votre livre Isa. L'île des exclus t.1. Je trouve que c'est un livre rempli d'émotions avec des
