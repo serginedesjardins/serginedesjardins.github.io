@@ -34,6 +34,8 @@ Article publié dans Le Journal de Québec, 28 mai 2017 : http://www.journaldequ
 
 « En 1844 s'ouvrait un lazaret pour soigner les personnes atteintes de la lèpre sur l'île de Sheldrake au Nouveau-Brunswick. Les familles déchirées ont vu leurs parents, leurs enfants leur être enlevés pour être isolés dans ce lieu qui tenait bien plus de la prison que de l'hôpital. Parmi ces malheureux: Isa qui n'est pourtant pas touchée par la maladie, Isa qui vit en recluse... Parviendra-t-elle à retrouver ses soeurs Juliette et Fanny? Des personnages très attachants, un pan de l'Histoire du pays méconnu, des recherches impressionnantes: les clés pour un roman historique réussi ! » - [Chrystine Brouillet](http://tva.canoe.ca/emissions/salutbonjour/chroniques/sbwe/bouquineries/222921/chrystine-part-a-la-rencontre-des-lecteurs)
 
+« Sergine Desjardins déploie un talent incroyable pour nous plonger dans un univers glauque, dans lequel les superstitions ont la vie dure et la science peu de crédit !Les personnages romanesques à souhait rendent cette histoire épique et émouvante! » France Net Infos https://www.francenetinfos.com/offrez-des-romans-historiques-pour-noel-187147/
+
 « Auteure du roman primé Marie Major, Sergine Desjardins transporte les lecteurs sur l'île Sheldrake, au Nouveau-Brunswick, où des lépreux ont été déportés au milieu des années 1800. Le tome un de la série Isa, l'île des exclus, lève le voile sur une période très peu connue de notre histoire. (...) Sergine Desjardins, une écrivaine à la plume alerte et agréable, s'est beaucoup documentée sur les traitements médicaux de la lèpre à cette époque et a lu plusieurs biographies. » - Marie-France Bornais. Le Journal de Québec, dimanche
 25 mai 2014.
 
