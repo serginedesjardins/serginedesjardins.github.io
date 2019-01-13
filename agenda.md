@@ -6,6 +6,10 @@ permalink: /agenda/
 
 # Calendrier des activités. 
 
+## 2019
+
+17 janvier, 19:00 : Conférence, Les Filles du roy et leur époque. Lieu : Salle de la Société d'Histoire et de généalogie de Rimouski. Sous-sol de la Bibliothèque Lisette Morin. Rimouski.
+
 ## 2018
 
 4 août 2018, 11 h : Conférence : Marie Major : une Fille du roy et son époque. Musée de la civilisation. Québec.
