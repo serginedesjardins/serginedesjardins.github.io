@@ -8,7 +8,7 @@ permalink: /agenda/
 
 ## 2019
 
-17 janvier, 19:00 : Conférence, Les Filles du roy et leur époque. Lieu : Salle de la Société d'Histoire et de généalogie de Rimouski. Sous-sol de la Bibliothèque Lisette Morin. Rimouski.
+17 janvier, 19:30 : Conférence, Les Filles du roy et leur époque. Lieu : Salle de la Société d'Histoire et de généalogie de Rimouski. Sous-sol de la Bibliothèque Lisette Morin. Rimouski.
 
 ## 2018
 
