@@ -6,6 +6,8 @@ permalink: /lecteurs/
 
 # Concernant Le Châtiment de Clara:
 
+"Bonjour Sergine Desjardins! Je viens de terminer la lecture de votre roman: Le châtiment de Clara.Je suis très contente de pouvoir vous dire mon émerveillement à cette lecture. La profondeur des idées, l'intrigue, la riche documentation sur la vie quotidienne au 17e siècle, TOUT ce livre a concouru à mon bonheur. Je me dois de vous dire que j'ai lu tard dans la nuit. Il n'est pas exagéré de vous dire que j'ai dévoré votre roman. Merci de l'avoir écrit!" Suzanne Larocque, commentaire mis sur ma page Facebook, le 9 février 2019.
+
 « J’ai terminé la lecture de ton roman «Le châtiment de Clara». Vraiment, tu as un talent remarquable pour ficeler une histoire qui nous tienne en haleine du début à la fin, doublé d’un réel talent de pédagogue. J’aime acquérir des connaissance à travers mes lectures et avoir l’opportunité de nourrir ma réflexion, ce que tu offres généreusement par l’imposante recherche qui appuie en général tes romans.» Yvonnick Roy.
  
 " Que de bons moments j'ai passé dans l'univers de Clara, où l'histoire et le roman se chevauchent sur 620 pages bien ficelées. Le châtiment de Clara est un autre grand livre de Sergine Desjardins. Félicitation pour cette œuvre dans laquelle tu t'es investie corps et âme pour notre plus grand plaisir." Christiane Caron. St-Étienne-des-Grès.
