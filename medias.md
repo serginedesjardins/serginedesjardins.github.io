@@ -56,6 +56,8 @@ Article publié dans Le Journal de Québec, 28 mai 2017 : http://www.journaldequ
 
 « Très bon roman. Je ne savais pas qu'il y avait eu des cas de lèpres au Nouveau-Brunswick. C'est un livre tellement triste, mais tellement beau. » [Diane Langevin](https://booknode.com/isa_tome_1_l_ile_des_exclus_01304545/).
 
+"Un roman dont le centre de l'histoire est la lèpre et ses conséquences qu'elle engendre au sein d'une famille unie et aimante......beaucoup de douleur, de peine, de souffrance, de trahison et cette famille si soudée vole en éclats.....mais l'amour, la tendresse, l'amitié seront leur unique espoir vers le bonheur.Entre réalité et fiction, ce roman historique en deux tomes est une réussite, il m'a ouvert les yeux sur une maladie qui est encore à ce jour présente dans le monde et qui est la cause de souffrance aussi bien morale que physique. Terver " https://booknode.com/isa_tome_2_l_ile_de_l_ermite_01357443/comments/20266945?answer_open=1
+
 # Critiques de Robertine Barry
 
 « Ce qui est intéressant quand on lit votre livre c'est qu'on a un portrait
