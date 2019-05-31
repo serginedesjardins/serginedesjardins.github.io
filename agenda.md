@@ -8,6 +8,12 @@ permalink: /agenda/
 
 ## 2019
 
+9 octobre 2019 : Conférence, Bibliothèque de St-Anaclet.
+
+18 septembre 2019 : Café-rencontres, Ste-Félicité, de 14 à 16 heures.
+
+Mars et avril 2019 : Rencontres littéraires dans trois résidences pour personnes âgées : Mont-Joli, Ste-Jeanne-d’Arc et Sainte-Flavie.
+
 17 janvier, 19:30 : Conférence, Les Filles du roy et leur époque. Lieu : Salle de la Société d'Histoire et de généalogie de Rimouski. Sous-sol de la Bibliothèque Lisette Morin. Rimouski.
 
 ## 2018
