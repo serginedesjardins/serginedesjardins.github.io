@@ -116,6 +116,16 @@ Message sur Facebook, le 28 mai : « Je suis en train de lire Le châtiment de C
 
 # Concernant Isa:
 
+Chère Sergine,
+Ce n’est qu’hier que j’ai terminé la lecture des deux volumes du titre Isa… et me voici, t’envoyant quelques mots pour te dire le plaisir que j’ai eu à parcourir les quelques 800 pages et plus de ton écriture si personnelle.
+J’aurais tellement de choses à te dire sur les qualités que je suis prête à donner à ton écriture. Outre les questions et les idées qui me sont venues à l’esprit en cours de lecture. Je te suis redevable du temps et de l’intérêt que la recherche a dû demander pour préparer cette œuvre. Je ne doute pas un seul instant de l’implication que cela sollicite.
+Je suis admirative de la façon dont l’information puisée à des sources sûres a été intégrée dans le texte narratif. Les indications portant sur les faits historiques et les personnages ayant vécu nous empêchent d’être dans le doute quant à ceux-ci. J’ai particulièrement apprécié cet aspect du travail d’édition que tu as voulu ajouter.
+Au niveau historique, j’ai beaucoup appris sur l’évolution de la médecine surtout en regard du volet de la lèpre bien évidemment. Et je ne connaissais pas cet assaut de la température qui a donné le 6 novembre 1884 une tempête hors du commun au Bas-Saint-Laurent.
+Je ne veux pas t’accaparer plus qu’il ne faut mais je me suis posée une question quant au(x) lépreux ayant vécu à Rivière-du-Loup que tu mentionnes à deux endroits dans ton ouvrage. Je ne doute pas que, l’ayant écrit, tu puisses connaître leur nom. Puis-je te les demander? Y en a-t-il eu beaucoup? Pourquoi venir s’installer ici?
+Merci encore Sergine de ce labeur qui nous permet, nous les lecteurs, de vivre un moment dans l’histoire qui serait demeuré complètement inconnu en compagnie de personnages attachants. J’ai posé la question autour de moi et personne ne savait qu’il y avait eu au Nouveau-Brunswick une épidémie de lèpre. 
+Ton œuvre se lit bien, les sentiments et émotions qui y sont décrits nous améliorent en tant qu’humain par leurs qualités, de façon générale. Ta grande connaissance du monde animal s’y reflète et soutient l’intrigue d’une manière significative. La grande diversité des types de femmes rencontrées au long de la lecture livrent une image bien campée. En tant que lectrice, j’ai été amenée à éprouver de la reconnaissance pour ce qu’elles accomplissent dans le roman. Du coup, celles qui ont réellement vécu nous intéressent particulièrement par leurs réalisations. En filigrane, merci d’avoir su si bien présenter notre région bas-laurentienne.
+Je te laisse sur ces mots mais je tiens à ajouter que le journal d’Isa qui s’inscrit en parallèle de l’édifice principal est une idée astucieuse et ajoute à la vérité du roman.  " Élisabeth Dionne. Rivière-du-Loup.
+
 " Sergine Desjardins, outre de raconter ce triste épisode historique, va en plus traiter d'autres sujets très importants et qui vont alléger quelque peu les passages durs et poignants. Ainsi tu vas faire la connaissance de la sœur aînée de Isa, Fanny.
 Fanny est partie chez la sœur de son père, Gus, chez sa tante Marjorie à Québec.
 Avec Fanny et Marjorie entre autres tu liras la place de la femme dans cette société patriarcale et très religieuse.
