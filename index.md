@@ -4,7 +4,7 @@ title: Acceuil
 permalink: /
 ---
 
-<div style='float:right; padding: 10px; font-size: 11px; text-align: center'>
+<div style='float:right; padding: 10px; font-size: 1.5em; text-align: center'>
   <img style="padding-bottom:0.5em;" src='images/sergine-2019-small.jpg' alt='photo'><br/>
   Photo par <a href='https://www.facebook.com/melanie.lebelpotter'>Mélanie Lebel-Potter</a>
 </div>
