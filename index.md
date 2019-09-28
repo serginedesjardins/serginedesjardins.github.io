@@ -25,4 +25,6 @@ En 2016, a été publié dans l'Encyclopédie canadienne mon article sur Roberti
 
 Le châtiment de Clara, mon plus récent roman lancé au Québec en avril 2017, raconte l'histoire d'une femme victime d'un viol au 17e siècle.
 
+En 2019, à l’occasion du 50e anniversaire de l’UQAR, j’ai l’honneur de faire partie des 50 diplômés qui se sont le plus illustrés après leur passage à cette université.
+
 J'offre une série de conférences dont les titres sont : 1. Marie Major et son époque. 2. Les Filles du Roy. 3. Robertine Barry et son époque. 4. Tracadie au temps de la lèpre. 5. Viol et violence faite aux femmes au 17e siècle. 6. Cinq femmes : Marie Major (1637-1689), Robertine Barry (1863-1910), Rosalie Cadron-Jetté (1764-1864), Clara de Longueville et Geneviève Picoté dit Belestre (1667-1721).
