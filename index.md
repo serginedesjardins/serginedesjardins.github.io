@@ -21,7 +21,7 @@ En 2012, je fus l'une des vingt auteurs choisis par l'UNEQ et l'ACFAS pour rédi
 
 En 2014, j'étais finaliste pour le Prix Artiste de la ville de Rimouski avant d'être, en 2015, récipiendaire de ce prix.
 
-En 2016, a été publié dans l'Encyclopédie canadienne mon article sur Robertine Barry et un autre sera publié à l'automne 2018 dans le Petit dictionnaire des grandes québécoises d'hier et d'aujourd'hui.
+En 2016, a été publié dans l'Encyclopédie canadienne mon article sur Robertine Barry et un autre sera publié dans le Petit dictionnaire des grandes québécoises d'hier et d'aujourd'hui.
 
 Le châtiment de Clara, mon plus récent roman lancé au Québec en avril 2017, raconte l'histoire d'une femme victime d'un viol au 17e siècle.
 
