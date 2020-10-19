@@ -58,6 +58,8 @@ Article publié dans Le Journal de Québec, 28 mai 2017 : http://www.journaldequ
 
 "Un roman dont le centre de l'histoire est la lèpre et ses conséquences qu'elle engendre au sein d'une famille unie et aimante......beaucoup de douleur, de peine, de souffrance, de trahison et cette famille si soudée vole en éclats.....mais l'amour, la tendresse, l'amitié seront leur unique espoir vers le bonheur.Entre réalité et fiction, ce roman historique en deux tomes est une réussite, il m'a ouvert les yeux sur une maladie qui est encore à ce jour présente dans le monde et qui est la cause de souffrance aussi bien morale que physique. Terver " https://booknode.com/isa_tome_2_l_ile_de_l_ermite_01357443/comments/20266945?answer_open=1
 
+"Tout aussi passionnant autant que poignant, le roman de Sergine Desjardins rend un hommage vibrant à tous les exclus ainsi qu'à tous ceux qui leur ont tendu la main. On se réjouit déjà de découvrir la suite des aventures de cette famille du Nouveau-Brunswick !" Ingrid Fasquelle, Lien : HTTP://HISTOIREDUSOIR.CANALB.. sur Babelio, octobre 2018 : https://www.babelio.com/livres/Desjardins-Isa-tome-1--Lile-des-exclus/619303
+
 " Sergine Desjardins, outre de raconter ce triste épisode historique, va en plus traiter d'autres sujets très importants et qui vont alléger quelque peu les passages durs et poignants. Ainsi tu vas faire la connaissance de la sœur aînée de Isa, Fanny.
 Fanny est partie chez la sœur de son père, Gus, chez sa tante Marjorie à Québec.
 Avec Fanny et Marjorie entre autres tu liras la place de la femme dans cette société patriarcale et très religieuse.
