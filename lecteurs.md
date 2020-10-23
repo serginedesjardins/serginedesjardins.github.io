@@ -356,6 +356,9 @@ Saint-Pascal.
 
 « Madame Desjardins, je tiens à vous dire combien j’ai aimé le livre sur Robertine Barry. C’est une personne extraordinaire, méconnue, et vous la faites sortir de l’oubli. Je vous en remercie de tout cœur. J’ai aussi beaucoup apprécié Marie Major; une lecture instructive et agréable. Merci pour ces belles heures passées en compagnie de vos livres et félicitation pour ces magnifiques ouvrages.» Marie Marchessault.
 
+« Bonjour Madame Desjardins, Je viens de terminer vos deux beaux volumes sur la biographie de Robertine Barry. Cette lecture m’a fait connaître cette grande femme que je ne connaissais pas avant d’avoir lu la biographie d’Honoré Beaugrand. Je voulais vous dire merci pour votre travail. Le chemin de l’émancipation des femmes a été très lent et long et il reste tellement de travail. Je trouve cela triste que Robertine n’ait pu voir ses efforts récompensés... Cette biographie n’est pas seulement sur la vie de Robertine, mais sur une époque du Québec qu’on a tendance à oublier. Salutations et toute mon admiration. » Nancy Boily
+
+
 # Concernant Marie Major:
 
  « J'ai dévoré Marie Major en très peu de temps. J'ai adoré!
