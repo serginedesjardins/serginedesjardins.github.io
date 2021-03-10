@@ -6,7 +6,7 @@ permalink: /medias/
 
 # Entrevues
 
-*10 mars 2021*: [Entrevue au sujet de Robertine Barry.][http://sergine-desjardins.com/files/2021-03-10.mp3]
+*10 mars 2021*: [Entrevue au sujet de Robertine Barry.](http://sergine-desjardins.com/files/2021-03-10.mp3)
 
 *26 avril 2017*: [Entrevue accordée à Denis Lévesque au sujet de ma conférence Tracadie au temps de la lèpre et de mon roman Le châtiment de Clara, 105-3 Matane.](http://sergine-desjardins.com/files/2017-entrevue.mp3)
 
