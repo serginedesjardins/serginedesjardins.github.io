@@ -6,13 +6,13 @@ permalink: /medias/
 
 # Entrevues
 
-*10 mars 2021*: [Entrevue au sujet de Robertine Barry.](https://sergine-desjardins.com/files/2021-03-10.mp3)
+*10 mars 2021*: [Entrevue au sujet de Robertine Barry.](http://sergine-desjardins.com/files/2021-03-10.mp3)
 
-*26 avril 2017*: [Entrevue accordée à Denis Lévesque au sujet de ma conférence Tracadie au temps de la lèpre et de mon roman Le châtiment de Clara, 105-3 Matane.](https://sergine-desjardins.com/files/2017-entrevue.mp3)
+*26 avril 2017*: [Entrevue accordée à Denis Lévesque au sujet de ma conférence Tracadie au temps de la lèpre et de mon roman Le châtiment de Clara, 105-3 Matane.](http://sergine-desjardins.com/files/2017-entrevue.mp3)
 
-*11 avril 2017*: [Entrevue accordée à Éric Barrette au sujet de mon roman Le châtiment de Clara, Radio-Canada.](https://ici.radio-canada.ca/premiere/emissions/info-reveil/episodes/378762/audio-fil-du-mardi-11-avr)
+*11 avril 2017*: [Entrevue accordée à Éric Barrette au sujet de mon roman Le châtiment de Clara, Radio-Canada.](http://ici.radio-canada.ca/premiere/emissions/info-reveil/episodes/378762/audio-fil-du-mardi-11-avr)
 
-*10 janvier 2017*: [Entrevue accordée à Éric Barrette au sujet de mon article sur Robertine Barry dans l'Encyclopédie canadienne, Radio-Canada.](https://ici.radio-canada.ca/premiere/emissions/info-reveil/episodes/371855/audio-fil-du-mardi-10-janvier-2017)
+*10 janvier 2017*: [Entrevue accordée à Éric Barrette au sujet de mon article sur Robertine Barry dans l'Encyclopédie canadienne, Radio-Canada.](http://ici.radio-canada.ca/premiere/emissions/info-reveil/episodes/371855/audio-fil-du-mardi-10-janvier-2017)
 
 # Critiques Le châtiment de Clara
 
