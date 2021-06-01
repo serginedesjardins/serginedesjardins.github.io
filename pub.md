@@ -6,9 +6,9 @@ permalink: /pub/
 
 # Publications
 
-Robertine Barry. Tome 2: On l'appelait Monsieur. Deuxième édition. ISBN-13: 979-8742798538, 2021. <a href='https://www.amazon.ca/-/fr/Sergine-Desjardins/dp/B093B6J75C/'>Disponible en version papier et numérique sur amazon.ca</a> et dans plusieurs autres pays desservis par Amazon.
+Robertine Barry. Tome 2: On l'appelait Monsieur. Deuxième édition. ISBN-13: 979-8742798538, 2021. <a href='https://www.amazon.ca/-/fr/Sergine-Desjardins/dp/B093B6J75C/'>Disponibles en version papier et numérique sur amazon.ca</a> et dans plusieurs autres pays desservis par Amazon.
 
-Robertine Barry. Tome 1: La femme nouvelle. Deuxième édition. ISBN-13: 979-8739811769, 2021. <a href='https://www.amazon.ca/-/fr/Sergine-Desjardins/dp/B0932BG2TH/'>Disponible en version papier et numérique sur amazon.ca</a> et dans plusieurs autres pays desservis par Amazon.
+Robertine Barry. Tome 1: La femme nouvelle. Deuxième édition. ISBN-13: 979-8739811769, 2021. <a href='https://www.amazon.ca/-/fr/Sergine-Desjardins/dp/B0932BG2TH/'>Disponibles en version papier et numérique sur amazon.ca</a> et dans plusieurs autres pays desservis par Amazon.
 
 Des nouvelles de maman. <a href="https://saint-jeanediteur.com/titre/des-nouvelles-de-maman/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN-13: 9782897588984, 2021.
 
