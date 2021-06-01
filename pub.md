@@ -6,6 +6,8 @@ permalink: /pub/
 
 # Publications
 
+Des nouvelles de maman. <a href="https://saint-jeanediteur.com/titre/des-nouvelles-de-maman/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN-13: 9782897588984, 2021.
+
 Le châtiment de clara. <a href="http://www.saint-jeanediteur.com/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN-13: 9782897582890, 2017.
 
 Isa. L'île des exclus. <a href="http://www.saint-jeanediteur.com/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN-13: 9782894557273, 2014.
@@ -27,6 +29,27 @@ Marie Major (Réédition). <a href="http://www.quebecloisirs.com/" target="_blan
 Marie Major. <a href="http://www.saint-jeanediteur.com/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN: 2894552149, 2006.
 
 Médecins et sages-femmes. <a href="http://www.quebec-amerique.com/" target="_blank">Éditions Québec Amérique</a>. ISBN: 2890377164, 1993.
+
+## Des nouvelles de maman
+
+<img style='float:left; padding: 10px;' src='../images/desnouvellesdemaman.jpg' alt="Couvertude de Des nouvelles de maman"/>
+
+Un échantillon des douze plus belles plumes de la maison dans un
+recueil tout spécial, mitonné depuis deux ans, qui rend hommage à
+toutes celles qui inspirent, aiment et guident des enfants et des
+petits-enfants et qui ont donné le meilleur d’elles-mêmes toute leur
+vie. Un magnifique cadeau à faire ou à se faire ! Avec des textes
+tantôt fictifs, tantôt inspirés de mères réelles, nos auteures ont mis
+la main à la pâte pour préparer un recueil aussi doux que le plus doux
+des câlins d’une maman. Louise Tremblay d’Essiambre, Marie Gray, France
+Lorrain, Anne-Marie Desbiens, Colette Major-McGraw, Mylène Moisan,
+Danielle Goyette, Sergine Desjardins, Stéphanie Martin, Dominique
+Lavallée, Carmen Belzine et Mélanie L’Hérault ont utilisé leur grand
+savoir-faire pour partager avec nous un aspect intime de leur univers.
+Chacune avec sa voix particulière, elles nous font réaliser à quel
+point elles sont précieuses, les mamans, et comment leur amour dure
+toute la vie. De magnifiques voix féminines à découvrir ou à connaître
+sous un tout nouveau jour !
 
 ## Le châtiment de clara
 
@@ -87,6 +110,10 @@ Barry.
 <img style='float:right; padding: 10px' src='../images/couv-barry-2.png' alt='Couvertude de Robertine Barry'/>
 
 *Robertine Barry, la femme nouvelle*. L'expression <i>Femme nouvelle</i> désignait, à l'époque, les femmes qui étudiaient dans des universités où qui, à l'instar de Robertine Barry, refusaient de se soumettre aux normes sociales, défendaient les droits des femmes bec et ongles et prenaient leur place dans des domaines jusque-là réservés aux hommes. "Les femmes nouvelles, écrivit Jean-Claude Bologne dans Histoire du célibat et des célibataires, ne se contentent plus de seconds rôles, elles veulent courir le monde, aimer à leur guise. Admirées par certains, vilipendées par d'autres, rien ne leur fut facile. Car la liberté est un chemin solitaire."
+
+<img style='float:right; padding: 10px' src='../images/rb-cover1.png' alt='Couvertude de Robertine Barry'/>
+
+<img style='float:right; padding: 10px' src='../images/rb-cover2.png' alt='Couvertude de Robertine Barry'/>
 
 Robertine Barry a été la soeur d'amitié d'Émile Nelligan, (son amante affirment certains), la marraine littéraire d'Olivar Asselin et a été un modèle pour bien des femmes qui hésitaient à s'aventurer en-dehors de la sphère privée où on les confinait. Coïncidence : Marie Major et Robertine Barry sont  toutes deux nées un 26 février...
 
