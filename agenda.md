@@ -6,7 +6,7 @@ permalink: /agenda/
 
 # Calendrier des activités. 
 
-##
+## 2021
 
 Le 24 mai 2021, 19 h : conférence via Zoom. Le thème : Robertine Barry, cette femme encore trop méconnue. Mes hôtes : La Société d’action nationale de Rivière-du-Loup et la Société nationale de l’Est du Québec.
 
