@@ -21,7 +21,7 @@ Bernier 2011. Cette même année, j'étais l'une des invités d'honneur du Salon
 livre de Rimouski. Ces deux livres n’étant plus disponibles en librairie, je
 peux cependant les poster. Plus de 10 ans après leur publication, ces livres
 n’étaient plus disponibles en librairie. J’ai donc mis à jour les deux tomes et
-les ai auto-édités. Les versions papier et numérique se trouvent sur amazon ([tome 1](https://www.amazon.ca/-/fr/Sergine-Desjardins-ebook/dp/B08FF456RF/ref=sr_1_1?__mk_fr_CA=%C3%85M%C3%85%C5%BD%C3%95%C3%91&crid=1O1VA2H25J05&dchild=1&keywords=robertine+barry+tome+1&qid=1598537092&sprefix=Robertine+Barry%2Caps%2C144&sr=8-1) et [tome 2](https://www.amazon.ca/-/fr/Sergine-Desjardins-ebook/dp/B08FL86DHW/ref=sr_1_1?__mk_fr_CA=%C3%85M%C3%85%C5%BD%C3%95%C3%91&dchild=1&keywords=robertine+barry+tome+2&qid=1598537119&sr=8-1), aussi disponible dans plusieurs autres pays desservis par Amazon).
+les ai auto-édités. Les versions papier et numérique se trouvent sur amazon ([tome 1](https://www.amazon.ca/-/fr/Sergine-Desjardins-ebook/dp/B08FF456RF/ref=sr_1_1?__mk_fr_CA=%C3%85M%C3%85%C5%BD%C3%95%C3%91&crid=1O1VA2H25J05&dchild=1&keywords=robertine+barry+tome+1&qid=1598537092&sprefix=Robertine+Barry%2Caps%2C144&sr=8-1) et [tome 2](https://www.amazon.ca/-/fr/Sergine-Desjardins-ebook/dp/B08FL86DHW/ref=sr_1_1?__mk_fr_CA=%C3%85M%C3%85%C5%BD%C3%95%C3%91&dchild=1&keywords=robertine+barry+tome+2&qid=1598537119&sr=8-1), aussi disponibles dans plusieurs autres pays desservis par Amazon).
 
 En 2012, je fus l'une des vingt auteurs choisis par l'UNEQ et l'ACFAS pour
 rédiger un texte poétique inspiré d'une recherche scientifique. La même année,
