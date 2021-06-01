@@ -115,9 +115,9 @@ Robertine Barry a été la soeur d'amitié d'Émile Nelligan, (son amante affirm
 
 <i>Communiqué de presse</i>: Victor-Lévy Beaulieu, directeur des Éditions Trois-Pistoles, est heureux d'annoncer la parution de <i>Robertine Barry</i>, premier volet d'une biographie en deux tomes signée Sergine Desjardins, auteure du roman historique <i>Marie Major</i> sacré best-seller au Québec. Fruit d'un travail de recherche minutieux et bellement écrit, ce livre-hommage marque le centième anniversaire du décès de la journaliste et éditrice Robertine Barry, femme de conviction et d'action, première femme journaliste du Canada français, pionnière de la défense des droits des femmes.
 
-<img style='float:right; padding: 10px' src='../images/rb-cover1.png' alt='Couvertude de Robertine Barry'/>
+<img style='float:left; padding: 10px' src='../images/rb-cover1.png' alt='Couvertude de Robertine Barry'/>
 
-<img style='float:right; padding: 10px' src='../images/rb-cover2.png' alt='Couvertude de Robertine Barry'/>
+<img style='float:left; padding: 10px' src='../images/rb-cover2.png' alt='Couvertude de Robertine Barry'/>
 
 Née à L'Isle-Verte au Bas-Saint-Laurent en 1863 et décédée à Montréal en 1910, Robertine Barry a entamé sa carrière de journaliste en 1891 lorsqu'elle s'est jointe à l'équipe du journal La Patrie. Sous le pseudonyme de Françoise, elle signa pendant près de dix ans une chronique hebdomadaire intitulée <i>Chronique du lundi</i>, ouvrant la voie au journalisme féminin. En 1902, elle fondait une revue bimensuelle, le <i>Journal de Françoise</i>, qui fut l'une de ses plus grandes réalisations.
 
@@ -127,8 +127,8 @@ Dans <i>Robertine Barry</i>, l'auteure Sergine Desjardins nous fait partager la 
 
 ## Marie Major
 
-<img style='float:left; padding: 10px' src="../images/couv-mm.png" alt="Couvertude de Marie Major"/>
-<img style='float:left; padding: 10px' src="../images/DESJARDINS_Marie_Major.jpg" alt="Couvertude de Marie Major (Pocket)"/>
+<img style='float:right; padding: 10px' src="../images/couv-mm.png" alt="Couvertude de Marie Major"/>
+<img style='float:right; padding: 10px' src="../images/DESJARDINS_Marie_Major.jpg" alt="Couvertude de Marie Major (Pocket)"/>
 
 *Communiqué de presse*: Libertinage, meurtre, procès, emprisonnement,
 injustice; une histoire qui a tout des romans policiers modernes mais qui se
