@@ -18,8 +18,7 @@ Mon premier roman, *Marie Major*, est inspiré de la vie de mon ancêtre, une Fi
 J'ai ensuite écrit la biographie de Robertine Barry, première femme journaliste
 canadienne-française. Cette bio en deux tomes m'a mérité le Prix Jovette
 Bernier 2011. Cette même année, j'étais l'une des invités d'honneur du Salon du
-livre de Rimouski. Ces deux livres n’étant plus disponibles en librairie, je
-peux cependant les poster. Plus de 10 ans après leur publication, ces livres
+livre de Rimouski. Plus de 10 ans après leur publication, ces livres
 n’étaient plus disponibles en librairie. J’ai donc mis à jour les deux tomes et
 les ai auto-édités. Les versions papier et numérique se trouvent sur amazon ([tome 1](https://www.amazon.ca/-/fr/Sergine-Desjardins-ebook/dp/B08FF456RF/ref=sr_1_1?__mk_fr_CA=%C3%85M%C3%85%C5%BD%C3%95%C3%91&crid=1O1VA2H25J05&dchild=1&keywords=robertine+barry+tome+1&qid=1598537092&sprefix=Robertine+Barry%2Caps%2C144&sr=8-1) et [tome 2](https://www.amazon.ca/-/fr/Sergine-Desjardins-ebook/dp/B08FL86DHW/ref=sr_1_1?__mk_fr_CA=%C3%85M%C3%85%C5%BD%C3%95%C3%91&dchild=1&keywords=robertine+barry+tome+2&qid=1598537119&sr=8-1), aussi disponibles dans plusieurs autres pays desservis par Amazon).
 
