@@ -12,27 +12,27 @@ Robertine Barry. Tome 1: La femme nouvelle. Deuxième édition. ISBN-13: 979-873
 
 Des nouvelles de maman. <a href="https://saint-jeanediteur.com/titre/des-nouvelles-de-maman/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN-13: 9782897588984, 2021.
 
-Le châtiment de clara. <a href="http://www.saint-jeanediteur.com/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN-13: 9782897582890, 2017.
+Le châtiment de clara. <a href="https://www.saint-jeanediteur.com/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN-13: 9782897582890, 2017.
 
-Isa. L'île des exclus. <a href="http://www.saint-jeanediteur.com/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN-13: 9782894557273, 2014.
+Isa. L'île des exclus. <a href="https://www.saint-jeanediteur.com/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN-13: 9782894557273, 2014.
 
-Isa. L'île de l'Ermite. <a href="http://www.saint-jeanediteur.com/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN-13: 9782894558317, 2014.
+Isa. L'île de l'Ermite. <a href="https://www.saint-jeanediteur.com/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN-13: 9782894558317, 2014.
 
 Marie Major. Pocket. ISBN: 9782226223027, 2013.
 
-Marie Major (Réédition). <a href="http://www.franceloisirs.com/" target="_blank">France Loisirs</a>. ISBN-13: 9782298045963, 2011.
+Marie Major (Réédition). <a href="https://www.franceloisirs.com/" target="_blank">France Loisirs</a>. ISBN-13: 9782298045963, 2011.
 
 Robertine Barry. On l'appelait Monsieur. Éditions Trois-Pistoles. ISBN-13: 9782895832287, 2011.
 
 Robertine Barry. La femme nouvelle. Éditions Trois-Pistoles. ISBN-13: 9782895832188, 2010.
 
-Marie Major (Réédition). <a href="http://www.saint-jeanediteur.com/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN: 2894552149, 2008.
+Marie Major (Réédition). <a href="https://www.saint-jeanediteur.com/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN: 2894552149, 2008.
 
-Marie Major (Réédition). <a href="http://www.quebecloisirs.com/" target="_blank">Québec Loisirs</a>. ISBN-13: 9782894308837, 2008.
+Marie Major (Réédition). <a href="https://www.quebecloisirs.com/" target="_blank">Québec Loisirs</a>. ISBN-13: 9782894308837, 2008.
 
-Marie Major. <a href="http://www.saint-jeanediteur.com/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN: 2894552149, 2006.
+Marie Major. <a href="https://www.saint-jeanediteur.com/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN: 2894552149, 2006.
 
-Médecins et sages-femmes. <a href="http://www.quebec-amerique.com/" target="_blank">Éditions Québec Amérique</a>. ISBN: 2890377164, 1993.
+Médecins et sages-femmes. <a href="https://www.quebec-amerique.com/" target="_blank">Éditions Québec Amérique</a>. ISBN: 2890377164, 1993.
 
 ## Des nouvelles de maman
 
