@@ -5,8 +5,8 @@ permalink: /
 ---
 
 <div style='float:right; padding: 10px; font-size: 0.8em; text-align: center'>
-  <img style="padding-bottom:0.5em;" src='images/sergine-2019-small.jpg' alt='photo'><br/>
-  Crédit photo : Mélanie Lebel-Potter.
+  <img style="padding-bottom:0.5em;" src='images/9.iMG_9915.JPG' alt='photo'><br/>
+  Crédit photo : Michel Dompierre.
 </div>
 
 Ayant quitté l'école à l'âge de 16 ans, j'ai pratiqué divers métiers avant de retourner aux études et de compléter une maîtrise en éthique.
