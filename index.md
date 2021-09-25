@@ -30,14 +30,14 @@ au Nouveau-Brunswick, ont été au palmarès Gaspard pendant huit semaines.
 
 En 2014, j'étais finaliste pour le Prix Artiste de la ville de Rimouski avant d'être, en 2015, récipiendaire de ce prix.
 
-En 2016, a été publié dans l'Encyclopédie canadienne mon article sur Robertine Barry et un autre sera publié dans le Petit dictionnaire des grandes québécoises d'hier et d'aujourd'hui.
+[En 2016, a été publié dans l'Encyclopédie canadienne mon article sur Robertine Barry et un autre sera publié dans le Petit dictionnaire des grandes québécoises d'hier et d'aujourd'hui.](https://www.thecanadianencyclopedia.ca/fr/article/robertine-barry-francoise)
 
 Le châtiment de Clara, roman historique lancé au Québec en avril 2017, raconte l'histoire d'une femme victime d'un viol au 17e siècle.
 
-En 2019, à l’occasion du 50e anniversaire de l’UQAR, j’ai l’honneur de faire
-partie des 50 diplômés qui se sont le plus illustrés après leur passage à cette
-université.
+[En 2019, à l’occasion du 50e anniversaire de l’UQAR, j’ai l’honneur de faire partie des 50 diplômés qui se sont le plus illustrés après leur passage à cette université.](https://fr.calameo.com/books/000879539931cf2b0f894)
 
 En 2021, a été lancé le recueil de nouvelles auquel j’ai eu l’immense bonheur de collaborer. Le titre : Des nouvelles de maman.
+
+[En 2021, une lettre de Nathalie Roy, ministre de la Culture, m’informait que Robertine Barry figurait désormais au Répertoire du patrimoine culturel du Québec. Quelques mois plus tard, la bibliothèque de la municipalité de l’Isle-verte prendra le nom de Robertine Barry.](https://www.lesoleil.com/actualite/en-region/lisle-verte-renommera-sa-bibliotheque-pour-rendre-hommage-a-la-premiere-femme-journaliste-du-quebec-a4edd74d356108ee90468035adaa31ee)
 
 J'offre une série de conférences dont les titres sont : 1. Marie Major et son époque. 2. Les Filles du Roy. 3. Robertine Barry et son époque. 4. Tracadie au temps de la lèpre. 5. Viol et violence faite aux femmes au 17e siècle. 6. Cinq femmes : Marie Major (1637-1689), Robertine Barry (1863-1910), Rosalie Cadron-Jetté (1764-1864), Clara de Longueville et Geneviève Picoté dit Belestre (1667-1721).
