@@ -6,6 +6,8 @@ permalink: /dis/
 
 <img src='../images/prixartiste.jpg' alt='photo'>
 
+**2019**: [Figurant parmi les 50 diplômés de l'UQAR dont le parcours est jugé remarquable.](https://fr.calameo.com/books/000879539931cf2b0f894)
+
 **2015**: Lauréate, prix artiste Ville de Rimouski.
 
 **2014**: Finaliste, prix Artiste Ville de Rimouski.
