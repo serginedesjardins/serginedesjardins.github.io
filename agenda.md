@@ -8,6 +8,8 @@ permalink: /agenda/
 
 ## 2021
 
+Le 21 octobre, 19 h : conférence Via Zoom. Le thème : Robertine Barry. On l'appelait Monsieur. Mon hôte: La Société d'histoire du Plateau-Mont-Royal. 
+
 Le 24 mai 2021, 19 h : conférence via Zoom. Le thème : Robertine Barry, cette femme encore trop méconnue. Mes hôtes : La Société d’action nationale de Rivière-du-Loup et la Société nationale de l’Est du Québec.
 
 ## 2019
