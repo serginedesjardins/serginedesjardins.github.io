@@ -18,6 +18,10 @@ div.navbar.navbar-inverse a:hover {
   color: #006400
 }
 
+div.container.body-content h2 {
+  font-size: 200%;
+}
+
 .navbar-brand {
   font-size: 1.5em;
 }
