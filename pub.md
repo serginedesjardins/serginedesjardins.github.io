@@ -6,7 +6,7 @@ permalink: /pub/
 
 # Publications
 
-Un souvenir, mille remords. <a href="https://saint-jeanediteur.com/titre/un-souvenir-mille-remords/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN-13: 9782898271441, 2021.
+Un souvenir, mille remords. <a href='https://saint-jeanediteur.com/titre/un-souvenir-mille-remords/'>Guy Saint-Jean Éditeur</a>. ISBN-13: 9782898271441, 2021.
 
 Robertine Barry. Tome 2: On l'appelait Monsieur. Deuxième édition. ISBN-13: 979-8742798538, 2021. <a href='https://www.amazon.ca/-/fr/Sergine-Desjardins/dp/B093B6J75C/'>Disponibles en version papier et numérique sur amazon.ca</a> et dans plusieurs autres pays desservis par Amazon.
 
