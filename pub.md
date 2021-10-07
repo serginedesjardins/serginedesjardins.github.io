@@ -6,6 +6,8 @@ permalink: /pub/
 
 # Publications
 
+Un souvenir, mille remords. <a href="https://saint-jeanediteur.com/titre/un-souvenir-mille-remords/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN-13: 9782898271441, 2021.
+
 Robertine Barry. Tome 2: On l'appelait Monsieur. Deuxième édition. ISBN-13: 979-8742798538, 2021. <a href='https://www.amazon.ca/-/fr/Sergine-Desjardins/dp/B093B6J75C/'>Disponibles en version papier et numérique sur amazon.ca</a> et dans plusieurs autres pays desservis par Amazon.
 
 Robertine Barry. Tome 1: La femme nouvelle. Deuxième édition. ISBN-13: 979-8739811769, 2021. <a href='https://www.amazon.ca/-/fr/Sergine-Desjardins/dp/B0932BG2TH/'>Disponibles en version papier et numérique sur amazon.ca</a> et dans plusieurs autres pays desservis par Amazon.
@@ -33,6 +35,16 @@ Marie Major (Réédition). <a href="https://www.quebecloisirs.com/" target="_bla
 Marie Major. <a href="https://www.saint-jeanediteur.com/" target="_blank">Guy Saint-Jean Éditeur</a>. ISBN: 2894552149, 2006.
 
 Médecins et sages-femmes. <a href="https://www.quebec-amerique.com/" target="_blank">Éditions Québec Amérique</a>. ISBN: 2890377164, 1993.
+
+## Un souvenir, mille remords
+
+<img style='float:right; padding: 10px;' src='../images/usmr-couverture.jpg' alt="Couvertude de Un souvenir, mille remords"/>
+
+Entre Sainte-Flavie, Québec et Paris, les vies de trois femmes seront inextricablement liées pour le meilleur et pour le pire.
+
+Forcée par son père de quitter ses études, Rose Dubeau travaille à l’école de bombardement et de tir de Mont-Joli, où sont formés des aviateurs destinés à combattre les Allemands. Dévouée et travaillante, elle voit sa vie basculer au moment même où elle trace son avenir. Elle n’a guère de points en commun avec sa sœur Dorothée, qui souhaite plutôt écouler ses jours dans la facilité, l’oisiveté et le luxe, même s’il lui faut recourir à des méthodes immorales à cette fin. Rose et Dorothée sont loin de se douter que Kalinda Cohen, une Tzigane enfermée dans un camp de concentration à des milliers de kilomètres de là, pourrait bien changer le cours de leur existence…
+
+Un roman historique éblouissant qui, malgré les affres de la guerre, célèbre l’art, la résilience, la compassion et l’espoir. Lumineux et magnifique!
 
 ## Des nouvelles de maman
 
