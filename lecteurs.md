@@ -11,7 +11,7 @@ Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de 
 
 « Je suis subjuguée par cette histoire ! Et quelle belle plume ! Dès la première page l’envoutement est au rendez-vous. J’aime finalement que les chapitres soient courts et nous plongent dans les contrastes alternés du suivant. C’est génial! Ce roman est ton meilleur! Captivant des premières lignes jusqu’à la fin, j’ai tellement aimé ces chapitres courts, bien construits, qui alternent entre Ste-Flavie et Paris. Vite on a le goût de suivre ces femmes dont les cheminements divers s’entrecroisent dans les difficultés, certes, mais sont d’une réalité à jamais oublier. La bonté triomphe sur les laideurs. Tu nous laisses de l’espoir. Merci d’avoir travaillé très fort pour nous livrer cette œuvre mémorielle. Tu as raison d’être fière! Un talent ne tombe pas du ciel! C’est la somme d’un travail, de détermination et de discipline. Félicitations. J’ai dévoré. » Madeleine Gagnon. Commentaires sur ma page Facebook, 13 et 24 octobre 2021.
 
-« Un des meilleurs romans que j’ai lus. » Denis Groleau. Commentaire sur ma page Facebook, 24 octobre 2021.
+« Un des meilleurs romans que j’ai lus. » Denise Groleau. Commentaire sur ma page Facebook, 24 octobre 2021.
 
 « J’ai commencé ton livre et je suis dedans jusqu’aux dents, tellement c’est bon. Bravo à une extraordinaire écrivaine. » Anne St-Denis. Commentaire sur ma page Facebook, 24 octobre 2021.
 
