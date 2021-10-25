@@ -6,6 +6,11 @@ permalink: /lecteurs/
 
 # Concernant Un souvenir, mille remords
 
+"Une fresque à nulle autre pareille, un tableau saisissant de libération de souvenirs cauchemardesques suites d'une guerre nazie, une retentissante bouffée vers HIER, une épopée brillamment soutenue de bouleversants témoignages d'ici et de France, voilà ce que je ressens après la lecture passionnée de Un souvenir, mille remords, émergé de ta plume puissante et libératrice, dans la lignée magistrale de Robertine Barry et Marie Major pour ne relever que ceux-là.
+Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de guerre sorti des boules à mites ! Tout au long de ce récit, je me suis imaginée tantôt Rose et Dorothée, tantôt Kalinda Z 7400 et Sandrine, et plusieurs autres tels Onésime et Bérangère, Ariel et Inge, pour ne nommer que ceux-là. Ce retour après 29 ans devrait permettre une réhabilitation "nationale" autant au Québec qu'à Paris. Qu'on le veuille ou pas, les souvenirs d'une telle guerre ne se répercutent pas seulement sur les premiers blessés...des images parlent jusqu'à nous en 2021 ! C'est Sandrine qui est mon écho !
+Sergine, tu me combles par tes écrits judicieux, ta plume alerte et juste, tes récits qui m'emportent au-delà de mon siècle et de mon pays ! Merci. » Irène Belleau.
+
+
 # Concernant Le Châtiment de Clara:
 
 "Bonjour Sergine Desjardins! Je viens de terminer la lecture de votre roman: Le châtiment de Clara.Je suis très contente de pouvoir vous dire mon émerveillement à cette lecture. La profondeur des idées, l'intrigue, la riche documentation sur la vie quotidienne au 17e siècle, TOUT ce livre a concouru à mon bonheur. Je me dois de vous dire que j'ai lu tard dans la nuit. Il n'est pas exagéré de vous dire que j'ai dévoré votre roman. Merci de l'avoir écrit!" Suzanne Larocque, commentaire mis sur ma page Facebook, le 9 février 2019.
