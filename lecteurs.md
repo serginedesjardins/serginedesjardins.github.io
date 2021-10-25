@@ -10,6 +10,15 @@ permalink: /lecteurs/
 Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de guerre sorti des boules à mites ! Tout au long de ce récit, je me suis imaginée tantôt Rose et Dorothée, tantôt Kalinda Z 7400 et Sandrine, et plusieurs autres tels Onésime et Bérangère, Ariel et Inge, pour ne nommer que ceux-là. Ce retour après 29 ans devrait permettre une réhabilitation "nationale" autant au Québec qu'à Paris. Qu'on le veuille ou pas, les souvenirs d'une telle guerre ne se répercutent pas seulement sur les premiers blessés...des images parlent jusqu'à nous en 2021 ! C'est Sandrine qui est mon écho !
 Sergine, tu me combles par tes écrits judicieux, ta plume alerte et juste, tes récits qui m'emportent au-delà de mon siècle et de mon pays ! Merci. » Irène Belleau.
 
+« Un des meilleurs romans que j’ai lus. » Denis Groleau. Commentaire sur ma page Facebook, 24 octobre 2021.
+
+« J’ai commencé ton livre et je suis dedans jusqu’aux dents, tellement c’est bon. Bravo à une extraordinaire écrivaine. » Anne St-Denis. Commentaire sur ma page Facebook, 24 octobre 2021.
+
+« J’ai adoré, comme d’habitude, toujours intéressant et captivant. » Claire Bernier. Commentaire sur ma page Facebook, 23 octobre 2021.
+
+« J’ai commencé la lecture de ton nouveau roman. Je suis accroché, pas capable de le laisser. Je suis emporté par l’histoire. Merci de me permettre d’avoir accès à ton imaginaire comme tu sais si bien le faire. Je continue ma lecture. » Quelques jours plus tard : « J’ai adoré ton nouveau roman. Tu nous transportes dans un monde où tu nous informes sur l’histoire en nous faisant vivre au gré de ta plume, l’espoir d’un monde meilleur par l’entraide entre humains. Merci encore pour cette belle histoire d’espoir. » Francis Desjardins (sans lien de parenté). Commentaires sur ma page Facebook, 17 et 21 octobre 2021.
+
+
 
 # Concernant Le Châtiment de Clara:
 
