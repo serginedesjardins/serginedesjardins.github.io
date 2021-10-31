@@ -23,6 +23,23 @@ Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de 
 
 « Chère Sergine, je viens de terminer votre beau roman historique et je vous félicite car j’ai tout simplement adoré vos personnages tellement attachants en plus d’en apprendre beaucoup plus sur ce conflit mondial. Je vous ai connue grâce à Marie Major et j’aime la façon que vous avez de décrire les époques tout en nous éduquant. Votre talent gagne à être connu. Vous travaillez tellement fort à faire toutes ces recherches ! Félicitations et mille fois merci ! Carole Quintal. Commentaire sur ma page Facebook le 29-10-2021.
 
+Je suis en pleine lecture de ce merveilleux roman. Renée St-Pierre, sur ma page Facebook, 24 octobre 2021.
+
+« Un souvenir, mille remords, de Sergine Desjardins. Une magnifique fresque historique. » Patricia Labonté, sur ma page Facebook, 24 octobre 2021.
+
+« J’ai terminé de le lire… J’ai déjà hâte au prochain. Si un jour, tu offres des ateliers d’écriture, je m’inscris. Il y a un travail de recherche et d’écriture phénoménal derrière chaque livre que vous écrivez. Vous avez toute mon admiration. » Mélanie Boisvert-Bédard, commentaire sur ma page Facebook, 28 octobre 2021.
+
+«  Je suis en train de le lire. Merveilleux. » Tony Desjardins, commentaire sur ma page Facebook, 28 octobre 2021.
+
+«  C’est toujours un grand plaisir de te lire. » Nicole Côté, commentaire sur ma page Facebook, 28 octobre 2021.
+
+«  Je suis rendue au dernier chapitre… Merveilleux à lire… » Francine Plourde, commentaire sur ma page Facebook, 28 octobre 2021.
+
+« Assez intense. Merci. J’ai aimé l’histoire de Kalinda. Tout est relié : l’espoir et le désespoir; l’art et la désespérance! Bravo! » Louise Brosseau, commentaire sur ma page Facebook, 28 octobre 2021.
+
+« Super roman. Je viens d’en finir la lecture. J’adore les petites phrases pour aider à la résistance. Merci pour ce magnifique roman. » Émilie Tessier, commentaire sur ma page Facebook, 28 octobre 2021.
+
+
 # Concernant Le Châtiment de Clara:
 
 "Bonjour Sergine Desjardins! Je viens de terminer la lecture de votre roman: Le châtiment de Clara.Je suis très contente de pouvoir vous dire mon émerveillement à cette lecture. La profondeur des idées, l'intrigue, la riche documentation sur la vie quotidienne au 17e siècle, TOUT ce livre a concouru à mon bonheur. Je me dois de vous dire que j'ai lu tard dans la nuit. Il n'est pas exagéré de vous dire que j'ai dévoré votre roman. Merci de l'avoir écrit!" Suzanne Larocque, commentaire mis sur ma page Facebook, le 9 février 2019.
