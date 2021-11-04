@@ -39,6 +39,8 @@ Je suis en pleine lecture de ce merveilleux roman. Renée St-Pierre, sur ma page
 
 « Super roman. Je viens d’en finir la lecture. J’adore les petites phrases pour aider à la résistance. Merci pour ce magnifique roman. » Émilie Tessier, commentaire sur ma page Facebook, 28 octobre 2021.
 
+« Bonjour, je viens de terminer votre roman que j’ai adoré et que je recommande fortement. J’aime beaucoup les romans historiques et celui-ci m’a beaucoup émue. Merci pour ces belles heures passées avec des personnages de cœur. » France Desautels.
+
 
 # Concernant Le Châtiment de Clara:
 
