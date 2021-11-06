@@ -9,7 +9,7 @@ permalink: /lecteurs/
 "Une fresque à nulle autre pareille, un tableau saisissant de libération de souvenirs cauchemardesques suites d'une guerre nazie, une retentissante bouffée vers HIER, une épopée brillamment soutenue de bouleversants témoignages d'ici et de France, voilà ce que je ressens après la lecture passionnée de Un souvenir, mille remords, émergé de ta plume puissante et libératrice, dans la lignée magistrale de Robertine Barry et Marie Major pour ne relever que ceux-là.
 Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de guerre sorti des boules à mites ! Tout au long de ce récit, je me suis imaginée tantôt Rose et Dorothée, tantôt Kalinda Z 7400 et Sandrine, et plusieurs autres tels Onésime et Bérangère, Ariel et Inge, pour ne nommer que ceux-là. Ce retour après 29 ans devrait permettre une réhabilitation "nationale" autant au Québec qu'à Paris. Qu'on le veuille ou pas, les souvenirs d'une telle guerre ne se répercutent pas seulement sur les premiers blessés...des images parlent jusqu'à nous en 2021 ! C'est Sandrine qui est mon écho ! Sergine, tu me combles par tes écrits judicieux, ta plume alerte et juste, tes récits qui m'emportent au-delà de mon siècle et de mon pays ! Merci. » Irène Belleau.
 
-« Je suis subjuguée par cette histoire ! Et quelle belle plume ! Dès la première page l’envoutement est au rendez-vous. J’aime finalement que les chapitres soient courts et nous plongent dans les contrastes alternés du suivant. C’est génial! Ce roman est ton meilleur! Captivant des premières lignes jusqu’à la fin, j’ai tellement aimé ces chapitres courts, bien construits, qui alternent entre Ste-Flavie et Paris. Vite on a le goût de suivre ces femmes dont les cheminements divers s’entrecroisent dans les difficultés, certes, mais sont d’une réalité à jamais oublier. La bonté triomphe sur les laideurs. Tu nous laisses de l’espoir. Merci d’avoir travaillé très fort pour nous livrer cette œuvre mémorielle. Tu as raison d’être fière! Un talent ne tombe pas du ciel! C’est la somme d’un travail, de détermination et de discipline. Félicitations. J’ai dévoré. » Madeleine Gagnon. Commentaires sur ma page Facebook, 13 et 24 octobre 2021.
+« Je suis subjuguée par cette histoire ! Et quelle belle plume ! Dès la première page l’envoutement est au rendez-vous. J’aime finalement que les chapitres soient courts et nous plongent dans les contrastes alternés du suivant. C’est génial! Ce roman est ton meilleur! Captivant des premières lignes jusqu’à la fin, j’ai tellement aimé ces chapitres courts, bien construits, qui alternent entre Ste-Flavie et Paris. Vite on a le goût de suivre ces femmes dont les cheminements divers s’entrecroisent dans les difficultés, certes, mais sont d’une réalité à jamais oublier. La bonté triomphe sur les laideurs. Tu nous laisses de l’espoir. Merci d’avoir travaillé très fort pour nous livrer cette œuvre mémorielle. Tu as raison d’être fière! Un talent ne tombe pas du ciel! C’est la somme d’un travail, de détermination et de discipline. Félicitations. J’ai dévoré. « C’est un incontournable cadeau de Noël pour qui aime les vraies choses de la vie passée, mais tellement actuelles encore. Ne pas lire ce livre, c’est comme oublier qu’on a un trésor légué par les femmes avant nous! ». » Madeleine Gagnon. Commentaires sur ma page Facebook, 13, 24 octobre et 5 novembre 2021.
 
 « Un des meilleurs romans que j’ai lus. » Denise Groleau. Commentaire sur ma page Facebook, 24 octobre 2021.
 
@@ -40,6 +40,15 @@ Je suis en pleine lecture de ce merveilleux roman. Renée St-Pierre, sur ma page
 « Super roman. Je viens d’en finir la lecture. J’adore les petites phrases pour aider à la résistance. Merci pour ce magnifique roman. » Émilie Tessier, commentaire sur ma page Facebook, 28 octobre 2021.
 
 « Bonjour, je viens de terminer votre roman que j’ai adoré et que je recommande fortement. J’aime beaucoup les romans historiques et celui-ci m’a beaucoup émue. Merci pour ces belles heures passées avec des personnages de cœur. » France Desautels.
+
+« Ce roman est vraiment bon. » Ève-Mie Charbo, commentaire sur ma page Facebook, 5-11-2021.
+
+« Je l’ai acheté et adoré. » Hélène Deschenes, commentaire sur ma page Facebook, 5-11-2021.
+
+« Je comprends que l’éditeur réimprime déjà, c’est une grande œuvre, bien documenté et ficelé avec beaucoup d’imagination. Le rythme est soutenu. J’ai été happé dès le début. Bravo Sergine. Te lire est un pur bonheur. » Christiane Caron, commentaire sur ma page Facebook, 5-11-2021.
+
+« Wow, je viens de terminer de le lire et j’ai ADORÉ. Du début à la fin, pas capable d’arrêter de lire en 5 jours et voilà, déjà terminé. Merci, j’ai appris des choses et je le recommande à tous. Très bon livre. Félicitation Sergine. » France Pelletier, commentaire sur ma page Facebook, 5-11-2021.
+
 
 
 # Concernant Le Châtiment de Clara:
