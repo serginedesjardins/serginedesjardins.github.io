@@ -49,7 +49,7 @@ Je suis en pleine lecture de ce merveilleux roman. Renée St-Pierre, sur ma page
 
 « Wow, je viens de terminer de le lire et j’ai ADORÉ. Du début à la fin, pas capable d’arrêter de lire en 5 jours et voilà, déjà terminé. Merci, j’ai appris des choses et je le recommande à tous. Très bon livre. Félicitation Sergine. » France Pelletier, commentaire sur ma page Facebook, 5-11-2021.
 
-
+« Quelle bonne nouvelle ! (à propos de la réimpression un mois après la parution). Je t’admire d’avoir été capable d’écrire des choses aussi terribles et d’y avoir insufflé autant d’humanité. Pour utiliser un cliché : j’ai dévoré cette histoire. C’est captivant, touchant, lumineux… Un gros bravo! » Élise Bourque, commentaire sur ma page Facebook, 7 novembre 2021. 
 
 # Concernant Le Châtiment de Clara:
 
