@@ -23,7 +23,7 @@ Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de 
 
 « Chère Sergine, je viens de terminer votre beau roman historique et je vous félicite car j’ai tout simplement adoré vos personnages tellement attachants en plus d’en apprendre beaucoup plus sur ce conflit mondial. Je vous ai connue grâce à Marie Major et j’aime la façon que vous avez de décrire les époques tout en nous éduquant. Votre talent gagne à être connu. Vous travaillez tellement fort à faire toutes ces recherches ! Félicitations et mille fois merci ! Carole Quintal. Commentaire sur ma page Facebook le 29-10-2021.
 
-Je suis en pleine lecture de ce merveilleux roman. Renée St-Pierre, sur ma page Facebook, 24 octobre 2021.
+« Je suis en pleine lecture de ce merveilleux roman.» Renée St-Pierre, sur ma page Facebook, 24 octobre 2021.
 
 « Un souvenir, mille remords, de Sergine Desjardins. Une magnifique fresque historique. » Patricia Labonté, sur ma page Facebook, 24 octobre 2021.
 
