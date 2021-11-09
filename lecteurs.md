@@ -53,7 +53,7 @@ Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de 
 
 « Quelle bonne nouvelle ! (à propos de la réimpression un mois après la parution). Je t’admire d’avoir été capable d’écrire des choses aussi terribles et d’y avoir insufflé autant d’humanité. Pour utiliser un cliché : j’ai dévoré cette histoire. C’est captivant, touchant, lumineux… Un gros bravo! » Élise Bourque, commentaire sur ma page Facebook, 7 novembre 2021. 
 
-« Bonjour chère écrivaine. Bravo pour les succès ... un second tirage! Un succès bien mérité si j'en juge à partir de ma propre lecture. De chapitre en chapitre, je vais au fil de l'Histoire sur 2 continents. Y a des bouts qui me rappellent des souvenirs personnels, d'autres qui me semblent empruntés à la vie de l'auteure elle-même, tout le reste à la Grande histoire bien incarnée par la galerie des personnages mis en scène. Du bonbon. Selon moi, tu t'es surpassée.Bravo.» Louis Belzile.
+« Bonjour chère écrivaine. Bravo pour les succès ... un second tirage! Un succès bien mérité si j'en juge à partir de ma propre lecture. De chapitre en chapitre, je vais au fil de l'Histoire sur 2 continents. Y a des bouts qui me rappellent des souvenirs personnels, d'autres qui me semblent empruntés à la vie de l'auteure elle-même, tout le reste à la Grande histoire bien incarnée par la galerie des personnages mis en scène. Du bonbon. Selon moi, tu t'es surpassée. Bravo.» Louis Belzile.
 
 # Concernant Le Châtiment de Clara:
 
