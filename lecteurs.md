@@ -41,6 +41,8 @@ Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de 
 
 « Bonjour, je viens de terminer votre roman que j’ai adoré et que je recommande fortement. J’aime beaucoup les romans historiques et celui-ci m’a beaucoup émue. Merci pour ces belles heures passées avec des personnages de cœur. » France Desautels.
 
+« Beaucoup aimé ma lecture.» France Lorrain, commentaire sur ma page Facebook, 6-11-1021.
+
 « Ce roman est vraiment bon. » Ève-Mie Charbo, commentaire sur ma page Facebook, 5-11-2021.
 
 « Je l’ai acheté et adoré. » Hélène Deschenes, commentaire sur ma page Facebook, 5-11-2021.
