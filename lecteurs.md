@@ -57,6 +57,8 @@ Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de 
 
 « Très très bon.» Odette Desrosiers, commentaire sur la page Facebook Auteurs québécois et franco-québécois, 9-11-2021.
 
+« À lire du début à la fin… intéressant et captivant.» Francine Plourde, commentaire sur ma page Facebook, 11-11-2021
+
 # Concernant Le Châtiment de Clara:
 
 "Bonjour Sergine Desjardins! Je viens de terminer la lecture de votre roman: Le châtiment de Clara.Je suis très contente de pouvoir vous dire mon émerveillement à cette lecture. La profondeur des idées, l'intrigue, la riche documentation sur la vie quotidienne au 17e siècle, TOUT ce livre a concouru à mon bonheur. Je me dois de vous dire que j'ai lu tard dans la nuit. Il n'est pas exagéré de vous dire que j'ai dévoré votre roman. Merci de l'avoir écrit!" Suzanne Larocque, commentaire mis sur ma page Facebook, le 9 février 2019.
