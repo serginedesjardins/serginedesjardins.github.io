@@ -47,7 +47,7 @@ Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de 
 
 « Je l’ai acheté et adoré. » Hélène Deschenes, commentaire sur ma page Facebook, 5-11-2021.
 
-« Je comprends que l’éditeur réimprime déjà, c’est une grande œuvre, bien documenté et ficelé avec beaucoup d’imagination. Le rythme est soutenu. J’ai été happé dès le début et j’ai de la peine parce que j’ai déjà terminé ma lecture. J’aurais voulu que ça continue tant et tant. Merci pour ce beau cadeau et pour l’énorme travail que tu as effectué pour donner vie à tous tes personnages si forts et si riches à la fois. Je vais m’ennuyer d’eux. Bravo Sergine. Te lire est un pur bonheur.» Christiane Caron, commentaire sur ma page Facebook, 5-11-2021 et ensuite message privé publié ici avec son autorisation.
+« Je comprends que l’éditeur réimprime déjà, c’est une grande œuvre, bien documenté et ficelé avec beaucoup d’imagination. Le rythme est soutenu. J’ai été happé dès le début et j’ai de la peine parce que j’ai déjà terminé ma lecture. J’aurais voulu que ça continue tant et tant. Merci pour ce beau cadeau et pour l’énorme travail que tu as effectué pour donner vie à tous tes personnages si forts et si riches à la fois. Je vais m’ennuyer d’eux. Bravo Sergine. Te lire est un pur bonheur. » Christiane Caron, commentaire sur ma page Facebook, 5-11-2021 et ensuite message privé publié ici avec son autorisation.
 
 « Wow, je viens de terminer de le lire et j’ai ADORÉ. Du début à la fin, pas capable d’arrêter de lire en 5 jours et voilà, déjà terminé. Merci, j’ai appris des choses et je le recommande à tous. Très bon livre. Félicitation Sergine. » France Pelletier, commentaire sur ma page Facebook, 5-11-2021.
 
@@ -58,6 +58,8 @@ Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de 
 « Très très bon.» Odette Desrosiers, commentaire sur la page Facebook Auteurs québécois et franco-québécois, 9-11-2021.
 
 « À lire du début à la fin… intéressant et captivant.» Francine Plourde, commentaire sur ma page Facebook, 11-11-2021
+
+« J'ai adoré. Ce livre est fascinant.» Diane Guénette, commentaire sur ma page Facebook, 15-11-2021.
 
 # Concernant Le Châtiment de Clara:
 
