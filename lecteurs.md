@@ -59,7 +59,7 @@ Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de 
 
 « À lire du début à la fin… intéressant et captivant.» Francine Plourde, commentaire sur ma page Facebook, 11-11-2021
 
-« J'ai adoré. Ce livre est fascinant.» Diane Guénette, commentaire sur ma page Facebook, 15-11-2021.
+« J'ai adoré. Ce livre est fascinant. » Diane Guénette, commentaire sur ma page Facebook, 15-11-2021.
 
 « Que d’émotions à la lecture de Un souvenir, mille remords. Merci Sergine de m’avoir fait vivre cette époque à travers des personnages réels et imaginaires. Personnages à travers lesquels j’ai vécu tant d’inquiétude, car je m’étais attaché à eux. Leur résilience m’a permis de leur faire confiance. Ils m’ont permis de connaitre l’histoire de cette guerre avec différents regards… différentes valeurs telles que la haine, la bonté, le désespoir, l’espérance, etc… Merci de m’avoir permis d’apprendre comment cette guerre a façonné l’histoire et ses occupants. » Sylvie Desjardins, commentaire sur ma page Facebook, 17 novembre 2021.
 
