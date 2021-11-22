@@ -63,6 +63,8 @@ Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de 
 
 « Que d’émotions à la lecture de Un souvenir, mille remords. Merci Sergine de m’avoir fait vivre cette époque à travers des personnages réels et imaginaires. Personnages à travers lesquels j’ai vécu tant d’inquiétude, car je m’étais attaché à eux. Leur résilience m’a permis de leur faire confiance. Ils m’ont permis de connaitre l’histoire de cette guerre avec différents regards… différentes valeurs telles que la haine, la bonté, le désespoir, l’espérance, etc… Merci de m’avoir permis d’apprendre comment cette guerre a façonné l’histoire et ses occupants. » Sylvie Desjardins, commentaire sur ma page Facebook, 17 novembre 2021.
 
+« Je l’ai lu et beaucoup aimé. » Diane Poirier. Commentaire sur la page Facebook de Raynald Horth, 12 novembre 2021. 
+
 # Concernant Le Châtiment de Clara:
 
 "Bonjour Sergine Desjardins! Je viens de terminer la lecture de votre roman: Le châtiment de Clara.Je suis très contente de pouvoir vous dire mon émerveillement à cette lecture. La profondeur des idées, l'intrigue, la riche documentation sur la vie quotidienne au 17e siècle, TOUT ce livre a concouru à mon bonheur. Je me dois de vous dire que j'ai lu tard dans la nuit. Il n'est pas exagéré de vous dire que j'ai dévoré votre roman. Merci de l'avoir écrit!" Suzanne Larocque, commentaire mis sur ma page Facebook, le 9 février 2019.
