@@ -63,7 +63,9 @@ Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de 
 
 « Que d’émotions à la lecture de Un souvenir, mille remords. Merci Sergine de m’avoir fait vivre cette époque à travers des personnages réels et imaginaires. Personnages à travers lesquels j’ai vécu tant d’inquiétude, car je m’étais attaché à eux. Leur résilience m’a permis de leur faire confiance. Ils m’ont permis de connaitre l’histoire de cette guerre avec différents regards… différentes valeurs telles que la haine, la bonté, le désespoir, l’espérance, etc… Merci de m’avoir permis d’apprendre comment cette guerre a façonné l’histoire et ses occupants. » Sylvie Desjardins, commentaire sur ma page Facebook, 17 novembre 2021.
 
-« Je l’ai lu et beaucoup aimé. » Diane Poirier. Commentaire sur la page Facebook de Raynald Horth, 12 novembre 2021. 
+« Je l’ai lu et beaucoup aimé. » Diane Poirier. Commentaire sur la page Facebook de Raynald Horth, 12 novembre 2021.
+
+« Je viens de terminer la lecture de Un souvenir, mille remords. J’avais de la difficulté à m’arrêter tellement je l’ai trouvé captivant. J’ai pleuré de voir tout ce que ces Juifs ont dû souffrit, de voir aussi toutes les amitiés sincères qui se sont développées, de voir la bonté et la résilience de ces personnes. Bravo pour cette belle histoire d’amour. J’avais lu L’île de l’ermite et L’île des exclus que j’ai aussi bien aimé. Merci pour ces belles heures que j’ai passé à vous lire. Lâchez Pas. » Louisette Fouquet, commentaire sur ma page Facebook, 26-11-2021.
 
 # Concernant Le Châtiment de Clara:
 
@@ -174,6 +176,8 @@ Message sur Facebook, le 28 mai : « Je suis en train de lire Le châtiment de C
 « Excellent. C’est le meilleur de ta collection, Sergine. Bravo ! » Monique Fournier. Matane. 
 
 « C’est un roman exceptionnel. Ton meilleur, Sergine. Il est tellement bon que je voudrais ne jamais le terminer. Il faudrait en faire une série à Radio-Canada. Mais les convaincre, c’est une autre histoire ! » Hélène Fortin. Sainte-Félicité.  
+
+
 
 # Concernant Isa:
 
