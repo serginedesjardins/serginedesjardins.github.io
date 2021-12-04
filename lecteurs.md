@@ -67,6 +67,11 @@ Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de 
 
 « Je viens de terminer la lecture de Un souvenir, mille remords. J’avais de la difficulté à m’arrêter tellement je l’ai trouvé captivant. J’ai pleuré de voir tout ce que ces Juifs ont dû souffrit, de voir aussi toutes les amitiés sincères qui se sont développées, de voir la bonté et la résilience de ces personnes. Bravo pour cette belle histoire d’amour. J’avais lu L’île de l’ermite et L’île des exclus que j’ai aussi bien aimé. Merci pour ces belles heures que j’ai passé à vous lire. Lâchez Pas. » Louisette Fouquet, commentaire sur ma page Facebook, 26-11-2021.
 
+« Je viens de finir votre roman Un souvenir, mille remords. J’ai adoré. » France Bernier. 
+
+« C’est ma lecture du moment : du bonheur à l’état pur. Merci Sergine pour ces beaux moments. » Marlene Carrier, commentaire sur ma page Facebook, 04-12-2021.
+
+
 # Concernant Le Châtiment de Clara:
 
 "Bonjour Sergine Desjardins! Je viens de terminer la lecture de votre roman: Le châtiment de Clara.Je suis très contente de pouvoir vous dire mon émerveillement à cette lecture. La profondeur des idées, l'intrigue, la riche documentation sur la vie quotidienne au 17e siècle, TOUT ce livre a concouru à mon bonheur. Je me dois de vous dire que j'ai lu tard dans la nuit. Il n'est pas exagéré de vous dire que j'ai dévoré votre roman. Merci de l'avoir écrit!" Suzanne Larocque, commentaire mis sur ma page Facebook, le 9 février 2019.
