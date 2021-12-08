@@ -77,6 +77,8 @@ Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de 
 
 «  Nous avons un riche patrimoine et nous ne le connaissons hélas que très peu! Merci de nous l’apprendre Sergine. Quel beau, sensible et fort intéressant roman, bien écrit, qui, à travers des personnages attachants, nous plonge au cœur même de la Seconde guerre. » Rollande Lambert, commentaire sur ma page Facebook du 08-12-2021 où j’avais affiché les tours de guet de Sainte-Flavie dont je parle dans mon roman.
 
+« Bonjour Sergine. J’ai dévoré Un souvenir, mille remords. Dès le début, du fait que mon beau-frère fut formé comme fusilier de tourelle (turret gunner) à Mont-Joli, je n’ai pu déposer ton chef-d’œuvre ! Et puis, tu as si bien traité l’Holocauste, un sujet important pour moi. Finalement, tu as tellement bien tricoté Sainte-Flavie/Auschwitz… NEC PLUS ULTRA. » Pierre Fortin, 08-12-2021.
+
 # Concernant Le Châtiment de Clara:
 
 "Bonjour Sergine Desjardins! Je viens de terminer la lecture de votre roman: Le châtiment de Clara.Je suis très contente de pouvoir vous dire mon émerveillement à cette lecture. La profondeur des idées, l'intrigue, la riche documentation sur la vie quotidienne au 17e siècle, TOUT ce livre a concouru à mon bonheur. Je me dois de vous dire que j'ai lu tard dans la nuit. Il n'est pas exagéré de vous dire que j'ai dévoré votre roman. Merci de l'avoir écrit!" Suzanne Larocque, commentaire mis sur ma page Facebook, le 9 février 2019.
