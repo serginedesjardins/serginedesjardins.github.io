@@ -71,6 +71,11 @@ Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de 
 
 « C’est ma lecture du moment : du bonheur à l’état pur. Merci Sergine pour ces beaux moments. » Marlene Carrier, commentaire sur ma page Facebook, 04-12-2021.
 
+ « Allô Sergine. Je viens de terminer la lecture de ton roman. Je comprends pourquoi tu as du succès avec ce livre, tellement beau, un récit historique romancé que j’ai adoré malgré des passages durs. Tu es géniale pour écrire une histoire comme celle-là. J’espère que tu auras un prix car tu le mérites. Merci encore. » Murielle Proulx.
+
+«  En lisant ce passage, je n’avais pas fait le lien avec cette tour que je connais bien pourtant… Merci ! Je vais terminer ton roman bientôt. Il ne me reste que quelques pages à lire, j’ai ralenti mon rythme afin d’en profiter plus longtemps. » Louise Hamel, commentaire sur ma page Facebook du 08-12-2021 où j’avais affiché les tours de guet de Sainte-Flavie dont je parle dans mon roman.
+
+«  Nous avons un riche patrimoine et nous ne le connaissons hélas que très peu! Merci de nous l’apprendre Sergine. Quel beau, sensible et fort intéressant roman, bien écrit, qui, à travers des personnages attachants, nous plonge au cœur même de la Seconde guerre. » Rollande Lambert, commentaire sur ma page Facebook du 08-12-2021 où j’avais affiché les tours de guet de Sainte-Flavie dont je parle dans mon roman.
 
 # Concernant Le Châtiment de Clara:
 
