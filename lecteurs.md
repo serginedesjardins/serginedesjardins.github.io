@@ -79,6 +79,8 @@ Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de 
 
 « Bonjour Sergine. J’ai dévoré Un souvenir, mille remords. Dès le début, du fait que mon beau-frère fut formé comme fusilier de tourelle (turret gunner) à Mont-Joli, je n’ai pu déposer ton chef-d’œuvre ! Et puis, tu as si bien traité l’Holocauste, un sujet important pour moi. Finalement, tu as tellement bien tricoté Sainte-Flavie/Auschwitz… NEC PLUS ULTRA. » Pierre Fortin, 08-12-2021.
 
+« Je suis née à Mont-Joli en 1949. Je viens de dévorer votre petit dernier Un souvenir, mille remords. Merci pour ce magnifique plongeon dans la vie et les coutumes de nos parents et grands-parents durant la guerre 39-45. À l’époque, ma mère a travaillé comme cuisinière au Restaurant de la Gare à Mont-Joli où toute l’équipe accueillait généreusement les jeunes soldats qui descendaient du train pour un lunch rapide. Vos sensibles descriptions aliment à ravir les histoires que ma mère me racontait. Que le Meilleur pour vous! Merci de nous partager votre talent exceptionnel. » Lise Roy, commentaire sur ma page Facebook, 9-12-2021.
+
 # Concernant Le Châtiment de Clara:
 
 "Bonjour Sergine Desjardins! Je viens de terminer la lecture de votre roman: Le châtiment de Clara.Je suis très contente de pouvoir vous dire mon émerveillement à cette lecture. La profondeur des idées, l'intrigue, la riche documentation sur la vie quotidienne au 17e siècle, TOUT ce livre a concouru à mon bonheur. Je me dois de vous dire que j'ai lu tard dans la nuit. Il n'est pas exagéré de vous dire que j'ai dévoré votre roman. Merci de l'avoir écrit!" Suzanne Larocque, commentaire mis sur ma page Facebook, le 9 février 2019.
