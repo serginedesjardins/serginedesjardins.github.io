@@ -14,6 +14,12 @@ permalink: /medias/
 
 *10 janvier 2017*: [Entrevue accordée à Éric Barrette au sujet de mon article sur Robertine Barry dans l'Encyclopédie canadienne, Radio-Canada.](https://ici.radio-canada.ca/premiere/emissions/info-reveil/episodes/371855/audio-fil-du-mardi-10-janvier-2017)
 
+# Critiques de Un souvenir, mille remords.
+
+« L’auteure, Sergine Desjardins, a été très intelligente dans la manière qu’elle a apporté ses histoires. Je dis bien ses histoires parce qu’il y en a 2. On a 2 livres pour le prix d’un. Elle a mis le focus sur les femmes. L’une, Rose, qui habite à Ste-Flavie. On réalise alors qu’à Ste-Flavie, en Gaspésie, les gens étaient eux aussi troublés par la guerre. Comme elle est historienne dans l’âme, tous les livres de Sergine Desjardins ont une connotation historique. Elle fait ressortir des choses dont on entend rarement parler. Par exemple, l’autre héroïne de son roman, est moitié Juive, moitié Tzigane. On a moins entendu parler des Tziganes dans les camps de concentration. Moi, j’ignorais cela et c’est vraiment bien documenté. On parle de génocide tzigane. (…) Le roman est présenté de façon intelligente : quand on touche aux camps de concentration, on est horrifié et le cœur n’en peut plus. Il y a une alternance des chapitres, de sorte qu’on passe à la vie de Rose, dont la vie est douce comparativement à celle de Kalinda. Le thème est dur mais l’auteure a montré la solidarité des femmes. J’avais lu auparavant des romans sur les camps de concentration mais ils n’étaient pas traités du point de vue des femmes.
+Bref, j’ai beaucoup aimé ce roman. C’est un livre qui nous en apprend beaucoup sur des pans d’Histoire souvent ignorés. Le style est parfait. Tout coule de source. » Venise Landry. Le Cochaux Show. 18-12-2021
+
+
 # Critiques de Des Nouvelles de Maman
 
 « C’est difficile pour moi de choisir l'œuvre que j’ai préférée, car elles ont toutes un petit quelque chose de poignant qui rend hommage aux mamans de ce monde. J’ai particulièrement aimé Marthe et Violaine de France Lorrain qui parle d’adoption et Aveux de Sergine Desjardins qui révèle un lourd secret. » [http://lepetitmondedeginger.com/lecture/nouvelles-de-maman-a-temps-fete-meres/](http://lepetitmondedeginger.com/lecture/nouvelles-de-maman-a-temps-fete-meres/).
