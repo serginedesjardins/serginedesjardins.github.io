@@ -6,7 +6,7 @@ permalink: /medias/
 
 # Entrevues
 
-*10 mars 2021*: Entrevue accordée à Éric Barrette au sujet de mon roman Un souvenir, mille remords. https://ici.radio-canada.ca/ohdio/premiere/emissions/313/info-reveil?pageNumber=4
+*10 mars 2021*: [Entrevue accordée à Éric Barrette au sujet de mon roman Un souvenir, mille remords (7h46).](https://ici.radio-canada.ca/ohdio/premiere/emissions/info-reveil/episodes/576607/rattrapage-du-mercredi-13-octobre-2021)
 
 *10 mars 2021*: [Entrevue au sujet de Robertine Barry.](https://sergine-desjardins.com/files/2021-03-10.mp3)
 
