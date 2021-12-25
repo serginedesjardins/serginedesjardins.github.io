@@ -6,6 +6,8 @@ permalink: /medias/
 
 # Entrevues
 
+*10 mars 2021*: Entrevue accordée à Éric Barrette au sujet de mon roman Un souvenir, mille remords. https://ici.radio-canada.ca/ohdio/premiere/emissions/313/info-reveil?pageNumber=4
+
 *10 mars 2021*: [Entrevue au sujet de Robertine Barry.](https://sergine-desjardins.com/files/2021-03-10.mp3)
 
 *26 avril 2017*: [Entrevue accordée à Denis Lévesque au sujet de ma conférence Tracadie au temps de la lèpre et de mon roman Le châtiment de Clara, 105-3 Matane.](https://sergine-desjardins.com/files/2017-entrevue.mp3)
