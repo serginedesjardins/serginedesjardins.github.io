@@ -85,6 +85,8 @@ Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de 
 
 « Merci d’avoir écrit ce livre. J’ai presque tous les livres que vous avez écrits. Ils me font du bien et j’adore vous lire. Félicitations pour votre excellent travail. Ce que vous apportez de réconfortant à la société mérite d’être souligné. Passez de joyeuses fêtes avec ceux qui vous sont chers et au plaisir de vous lire encore une fois. » Laurent Bérubé, Rimouski.
 
+« Je viens tout juste de terminer Un souvenir, mille remords, et c’est ce que j’ai lu de plus beau de tout ma vie. Merci.» Lise Girard
+
 # Concernant Le Châtiment de Clara:
 
 "Bonjour Sergine Desjardins! Je viens de terminer la lecture de votre roman: Le châtiment de Clara.Je suis très contente de pouvoir vous dire mon émerveillement à cette lecture. La profondeur des idées, l'intrigue, la riche documentation sur la vie quotidienne au 17e siècle, TOUT ce livre a concouru à mon bonheur. Je me dois de vous dire que j'ai lu tard dans la nuit. Il n'est pas exagéré de vous dire que j'ai dévoré votre roman. Merci de l'avoir écrit!" Suzanne Larocque, commentaire mis sur ma page Facebook, le 9 février 2019.
