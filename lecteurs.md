@@ -89,6 +89,21 @@ Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de 
 
 « J’ai terminé de lire ton dernier roman il y a quelques semaines et il m’habite encore. J’ai vraiment beaucoup apprécié. Encore une fois merci. » Marlene Carrier, commentaire sur ma page Facebook, 1er janvier 2022.
 
+Je viens de le terminer… vraiment aimé. On apprend pas mal de choses dans ce roman historique. Louise Thibeault, sur la page Facebook Pour ceux qui aiment lire. 1er janvier 2021.
+
+« J’ai adoré. » France Bernier, sur la page Facebook Pour ceux qui aiment lire. 1er janvier 2021.
+
+« Très bon roman. » Odette Desrosiers, sur la page Facebook Pour ceux qui aiment lire. 1er janvier 2021.
+
+«  Je viens de le terminer, excellent lecture ! » Noëlla Dufour, sur la page Facebook Pour ceux qui aiment lire. 1er janvier 2021.
+
+«  Très bon roman. » Sylvie Lauzier, sur la page Facebook Pour ceux qui aiment lire. 1er janvier 2021.
+
+«  C’est un très bon roman historique, j’ai adoré ! » Ghislaine Desrosiers Dubé,  sur la page Facebook Pour ceux qui aiment lire. 1er janvier 2021.
+  
+« Oh oui très bon !!!!! Une autre belle découverte. Je ne connaissais pas cette auteure. Je vais le terminer sûrement aujourd’hui. » Cécile Nadon, sur la page Facebook Pour ceux qui aiment lire. 1er janvier 2021.
+
+
 # Concernant Le Châtiment de Clara:
 
 "Bonjour Sergine Desjardins! Je viens de terminer la lecture de votre roman: Le châtiment de Clara.Je suis très contente de pouvoir vous dire mon émerveillement à cette lecture. La profondeur des idées, l'intrigue, la riche documentation sur la vie quotidienne au 17e siècle, TOUT ce livre a concouru à mon bonheur. Je me dois de vous dire que j'ai lu tard dans la nuit. Il n'est pas exagéré de vous dire que j'ai dévoré votre roman. Merci de l'avoir écrit!" Suzanne Larocque, commentaire mis sur ma page Facebook, le 9 février 2019.
