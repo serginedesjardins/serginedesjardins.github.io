@@ -85,6 +85,10 @@ Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de 
 
 « Merci d’avoir écrit ce livre. J’ai presque tous les livres que vous avez écrits. Ils me font du bien et j’adore vous lire. Félicitations pour votre excellent travail. Ce que vous apportez de réconfortant à la société mérite d’être souligné. Passez de joyeuses fêtes avec ceux qui vous sont chers et au plaisir de vous lire encore une fois. » Laurent Bérubé, Rimouski.
 
+« J'ai adoré ce livre. 10 sur 10. »  Diane Guénette, sur la page Facebook Pour ceux qui aiment lire. 15 novembre 2021.
+
+« Très bon livre. Je viens de le terminer. Excellent.» Fancine Despatie, sur la page Facebook Pour ceux qui aiment lire, 30 novembre 2021.
+
 « Je viens tout juste de terminer Un souvenir, mille remords, et c’est ce que j’ai lu de plus beau de tout ma vie. Merci.» Lise Girard
 
 « J’ai terminé de lire ton dernier roman il y a quelques semaines et il m’habite encore. J’ai vraiment beaucoup apprécié. Encore une fois merci. » Marlene Carrier, commentaire sur ma page Facebook, 1er janvier 2022.
@@ -93,7 +97,7 @@ Je viens de le terminer… vraiment aimé. On apprend pas mal de choses dans ce 
 
 « J’ai adoré. » France Bernier, sur la page Facebook Pour ceux qui aiment lire. 1er janvier 2021.
 
-« Très bon roman. » Odette Desrosiers, sur la page Facebook Pour ceux qui aiment lire. 1er janvier 2021.
+« Je viens de terminer ce merveilleux roman écrit par Sergine Desjardins. Une partie se passe à Sainte-Flavie et l'autre dans les camps de concentration pendant la guerre. 500 pages de pur bonheur. À lire si vous aimez les romans historiques. » Odette Desrosiers, sur la page Facebook Pour ceux qui aiment lire. 14 novembre 2021.
 
 «  Je viens de le terminer, excellent lecture ! » Noëlla Dufour, sur la page Facebook Pour ceux qui aiment lire. 1er janvier 2021.
 
