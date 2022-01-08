@@ -107,6 +107,8 @@ Je viens de le terminer… vraiment aimé. On apprend pas mal de choses dans ce 
   
 « Oh oui très bon !!!!! Une autre belle découverte. Je ne connaissais pas cette auteure. Je vais le terminer sûrement aujourd’hui. » Cécile Nadon, sur la page Facebook Pour ceux qui aiment lire. 1er janvier 2021.
 
+« J’ai pleuré, j’ai été révoltée, j’ai aimé, j’ai entré dans l’histoire tellement c’est bien écrit. Le soir, avant de dormir, je prends 1 heure pour la lecture, mais là parfois ça faisait 2 et 3 heures… je travaille le lendemain, incapable de fermer le livre, je voulais en savoir plus. Vraiment un chef d’œuvre contenant toutes les émotions rassemblées. Toujours excellent. Merci Sergine. Je suis impatiente de livre votre prochain. » Guylaine Guérette, sur ma page Facebook, le 27 décembre 2021. 
+
 
 # Concernant Le Châtiment de Clara:
 
