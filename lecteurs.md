@@ -109,6 +109,16 @@ Je viens de le terminer… vraiment aimé. On apprend pas mal de choses dans ce 
 
 « J’ai pleuré, j’ai été révoltée, j’ai aimé, j’ai entré dans l’histoire tellement c’est bien écrit. Le soir, avant de dormir, je prends 1 heure pour la lecture, mais là parfois ça faisait 2 et 3 heures… je travaille le lendemain, incapable de fermer le livre, je voulais en savoir plus. Vraiment un chef d’œuvre contenant toutes les émotions rassemblées. Toujours excellent. Merci Sergine. Je suis impatiente de livre votre prochain. » Guylaine Guérette, sur ma page Facebook, le 27 décembre 2021. 
 
+« Un autre article (dans le Journal de Montréal) qui donne le goût de lire ton dernier roman ! Il ne saurait en être autrement ! Tous tes écrits sont toujours fouillés et travaillés avec minutie. Ils savent nous transporter dans des retranchements historiques nous conduisant au cœur d’événements souvent pas ou peu connus. Ici, la Seconde Guerre nous ouvre ses portes à travers le parcours de trois jeunes femmes en passant par Ste-Flavie, la France et Auschwitz. La description de la vie dans les camps de concentration ne peut laisser indifférent ! Bravo mon amie pour ce travail de recherche et d’écriture. Ton roman mérite tous les éloges! » Rollande Lambert,  commentaire sur ma page Facebook, le 08-01-2022.
+
+« Sergine, j’ai terminé ton merveilleux roman, une très belle histoire incroyable. Je plongeais dans ton livre le soir avant d’aller dormir en ayant hâte de retrouver tes personnages qui sont devenus les miens. Quel travail de titan pour une recherche très fouillée. Bravo à toi Sergine. » Anne St-Denis, commentaire sur ma page Facebook, le 11-01-2022.
+
+« Quelle belle histoire! Moi qui vis à Saint-Flavie, je vois le scénario presqu’au coin de ma rue à 3 minutes de l’aéroport de Mont-Joli. Vraiment, ce livre est digne d’un film historique sur grand écran ! Bravo et merci pour cette belle lecture. » Danielle Jean, commentaire sur ma page Facebook, le 11-01-2022.
+
+
+
+
+
 
 # Concernant Le Châtiment de Clara:
 
