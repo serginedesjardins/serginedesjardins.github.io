@@ -228,7 +228,9 @@ Message sur Facebook, le 28 mai : « Je suis en train de lire Le châtiment de C
 
 « Excellent. C’est le meilleur de ta collection, Sergine. Bravo ! » Monique Fournier. Matane. 
 
-« C’est un roman exceptionnel. Ton meilleur, Sergine. Il est tellement bon que je voudrais ne jamais le terminer. Il faudrait en faire une série à Radio-Canada. Mais les convaincre, c’est une autre histoire ! » Hélène Fortin. Sainte-Félicité.  
+« C’est un roman exceptionnel. Ton meilleur, Sergine. Il est tellement bon que je voudrais ne jamais le terminer. Il faudrait en faire une série à Radio-Canada. Mais les convaincre, c’est une autre histoire ! » Hélène Fortin. Sainte-Félicité. 
+
+« Rien dans mon vécu n’aurait pu expliquer les sentiments de colère et de tristesse que ton livre a suscité en moi! Le génie de l’écrivaine sans doute! (...) Je tenais à te dire qu’encore une fois ton livre m’a touché profondément! Je le digère encore, plusieurs semaines après l’avoir terminé... Je souhaite que tu poursuives encore longtemps ton travail d’écriture, de recherchiste et d’historienne car cette mémoire de la « petite vie » et des « misères » de l’humanité se doit d’être racontée! Merci pour ton travail! » Louis Roy.
 
 
 
