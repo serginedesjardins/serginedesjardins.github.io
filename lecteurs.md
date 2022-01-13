@@ -114,7 +114,7 @@ permalink: /lecteurs/
 
 « Quelle belle histoire! Moi qui vis à Saint-Flavie, je vois le scénario presqu’au coin de ma rue à 3 minutes de l’aéroport de Mont-Joli. Vraiment, ce livre est digne d’un film historique sur grand écran ! Bravo et merci pour cette belle lecture. » Danielle Jean, commentaire sur ma page Facebook, le 11-01-2022.
 
-
+« Excellent roman historique, très bien documentée comme sait si bien le faire Sergine Desjardins. La mise en scène de la 9e École de bombardement et de tir de Mont-Joli est fort intéressante et nous rappelle un pan de notre histoire. Les accents mis sur le vécu des femmes en camp de concentration sont saisissants, presqu’incroyables mais bien vrais. En résumé, une œuvre magistrale selon moi. Merci Sergine pour ce rappel de l’histoire, si cruelle soit-elle. Tout à votre honneur d’avoir fait ce travail colossal! » Rose-Marie Gallagher, sur la page Facebook de la Bibliothèque Olivar-Asselin, 13 janvier 2022.
 
 
 
