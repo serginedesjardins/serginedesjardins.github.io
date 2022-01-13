@@ -91,9 +91,9 @@ Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de 
 
 « Je viens tout juste de terminer Un souvenir, mille remords, et c’est ce que j’ai lu de plus beau de tout ma vie. Merci.» Lise Girard
 
-« J’ai terminé de lire ton dernier roman il y a quelques semaines et il m’habite encore. J’ai vraiment beaucoup apprécié. Encore une fois merci. » Marlene Carrier, commentaire sur ma page Facebook, 1er janvier 2022.
+« J’ai terminé de lire ton dernier roman il y a quelques semaines et il m’habite encore. J’ai vraiment beaucoup apprécié. Encore une fois merci.» Marlene Carrier, commentaire sur ma page Facebook, 1er janvier 2022.
 
-Je viens de le terminer… vraiment aimé. On apprend pas mal de choses dans ce roman historique. Louise Thibeault, sur la page Facebook Pour ceux qui aiment lire. 1er janvier 2021.
+« Je viens de le terminer… vraiment aimé. On apprend pas mal de choses dans ce roman historique.» Louise Thibeault, sur la page Facebook Pour ceux qui aiment lire. 1er janvier 2021.
 
 « J’ai adoré. » France Bernier, sur la page Facebook Pour ceux qui aiment lire. 1er janvier 2021.
 
