@@ -118,6 +118,9 @@ permalink: /lecteurs/
 
 « J’ai acheté votre livre et pour tout vous dire, je ne l’ai pas lu. Je l’ai dévoré. Je ne me considère pas comme un lecteur assidu, mais ma passion pour la généalogie et l’histoire m’a incité à me procurer ce précieux livre. Un merci immense. J’ai un seul regret. Je l’ai lu trop rapidement. Mais il m’appartient et j’aurai l’occasion de le relire à nouveau après un certain temps. Encore merci. » Gabriel Morissette, commentaire sur ma page Facebook, 8 janvier 2022.
 
+« Tellement un bon livre que j ai adoré. » France Bernier, commentaire sur ma page Facebook, 14 janvier 2022.
+
+
 
 # Concernant Le Châtiment de Clara:
 
