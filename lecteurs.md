@@ -116,7 +116,7 @@ permalink: /lecteurs/
 
 « Excellent roman historique, très bien documentée comme sait si bien le faire Sergine Desjardins. La mise en scène de la 9e École de bombardement et de tir de Mont-Joli est fort intéressante et nous rappelle un pan de notre histoire. Les accents mis sur le vécu des femmes en camp de concentration sont saisissants, presqu’incroyables mais bien vrais. En résumé, une œuvre magistrale selon moi. Merci Sergine pour ce rappel de l’histoire, si cruelle soit-elle. Tout à votre honneur d’avoir fait ce travail colossal! » Rose-Marie Gallagher, sur la page Facebook de la Bibliothèque Olivar-Asselin, 13 janvier 2022.
 
-
+« J’ai acheté votre livre et pour tout vous dire, je ne l’ai pas lu. Je l’ai dévoré. Je ne me considère pas comme un lecteur assidu, mais ma passion pour la généalogie et l’histoire m’a incité à me procurer ce précieux livre. Un merci immense. J’ai un seul regret. Je l’ai lu trop rapidement. Mais il m’appartient et j’aurai l’occasion de le relire à nouveau après un certain temps. Encore merci. » Gabriel Morissette, commentaire sur ma page Facebook, 8 janvier 2022.
 
 
 # Concernant Le Châtiment de Clara:
