@@ -120,7 +120,7 @@ permalink: /lecteurs/
 
 « Tellement un bon livre que j ai adoré. » France Bernier, commentaire sur ma page Facebook, 14 janvier 2022.
 
-
+ « C’est avec une immense joie que vous m’avez fait voyager de Ste-Flavie à Paris en passant par Québec et ces damnés camps de la mort en Pologne. Quels personnages attachants, vous avez créés. On les voudrait tous et toutes comme ami.e.s, excepté Onémise bien sûr. Quel travail de recherche extraordinaire vous avez dû faire pour citer toutes ces personnes réelles qui ont vécu cet enfer. Je souhaite à tout le monde le moindrement passionné de lecture d’avoir le plaisir de lire ce livre. Merci beaucoup Mme Desjardins pour la semaine et demie que vous m’avez fait passer. » Paul-Aimé Leblanc.
 
 # Concernant Le Châtiment de Clara:
 
