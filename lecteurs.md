@@ -123,6 +123,8 @@ permalink: /lecteurs/
  « C’est avec une immense joie que vous m’avez fait voyager de Ste-Flavie à Paris en passant par Québec et ces damnés camps de la mort en Pologne. Quels personnages attachants, vous avez créés. On les voudrait tous et toutes comme ami.e.s, excepté Onémise bien sûr. Quel travail de recherche extraordinaire vous avez dû faire pour citer toutes ces personnes réelles qui ont vécu cet enfer. Je souhaite à tout le monde le moindrement passionné de lecture d’avoir le plaisir de lire ce livre. Merci beaucoup Mme Desjardins pour la semaine et demie que vous m’avez fait passer. » Paul-Aimé Leblanc.
  
  « J’ai adoré. » Hélène Grothe, commentaire sur ma page Facebook, 18 janvier 2022.
+ 
+ « Très bon roman. Je le recommande. » Josée Pelletier, commentaire sur ma page Facebook, 18 janvier 2022.
 
 # Concernant Le Châtiment de Clara:
 
