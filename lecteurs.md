@@ -118,13 +118,16 @@ permalink: /lecteurs/
 
 « J’ai acheté votre livre et pour tout vous dire, je ne l’ai pas lu. Je l’ai dévoré. Je ne me considère pas comme un lecteur assidu, mais ma passion pour la généalogie et l’histoire m’a incité à me procurer ce précieux livre. Un merci immense. J’ai un seul regret. Je l’ai lu trop rapidement. Mais il m’appartient et j’aurai l’occasion de le relire à nouveau après un certain temps. Encore merci. » Gabriel Morissette, commentaire sur ma page Facebook, 8 janvier 2022.
 
-« Tellement un bon livre que j ai adoré. » France Bernier, commentaire sur ma page Facebook, 14 janvier 2022.
-
  « C’est avec une immense joie que vous m’avez fait voyager de Ste-Flavie à Paris en passant par Québec et ces damnés camps de la mort en Pologne. Quels personnages attachants, vous avez créés. On les voudrait tous et toutes comme ami.e.s, excepté Onémise bien sûr. Quel travail de recherche extraordinaire vous avez dû faire pour citer toutes ces personnes réelles qui ont vécu cet enfer. Je souhaite à tout le monde le moindrement passionné de lecture d’avoir le plaisir de lire ce livre. Merci beaucoup Mme Desjardins pour la semaine et demie que vous m’avez fait passer. » Paul-Aimé Leblanc.
  
  « J’ai adoré. » Hélène Grothe, commentaire sur ma page Facebook, 18 janvier 2022.
  
  « Très bon roman. Je le recommande. » Josée Pelletier, commentaire sur ma page Facebook, 18 janvier 2022.
+ 
+ « J’ai pris du recul avant de te parler de ton dernier roman. Non pas que j’aie des critiques à formuler, au contraire! Encore une fois, un de tes romans est venu remuer en moi des émotions qui m’ont surpris... Je n’ai jamais vécu ce que tu fais vivre à tes personnages. Mes parents m’ont entouré d’amour et aucune saga familiale ne pourrait m’inspirer des récits comme ceux que tu couches sur le papier. Mon père a bien fait l’entraînement militaire, mais la guerre s’est terminée avant son départ. Et, de toutes façons, c’était avant ma naissance. Évidemment, je n’ai jamais vécu un enfer comme celui des camps de concentration allemands! Bref, rien dans mon vécu n’aurait pu expliquer les sentiments de colère et de tristesse que ton livre a suscité en moi! Le génie de l’écrivaine sans doute!
+Toujours est-il que, tout comme avec Le châtiment de Clara, ton dernier roman m’a beaucoup affecté. Je me souviens que lorsque j’ai lu Bonheur d’occasion, la tristesse et la colère m’avaient envahies. Tristesse devant la « petite vie » et colère devant l’injustice de la vie. Germinal avait exacerbé ces sentiments qui sont sans doute à la base d’une bonne partie de mon militantisme social... Un souvenir, mille remords a soulevé en moi une telle colère. Envers l’inhumanité, qu’elle soit individuelle comme celle du père de Rose ou institutionnalisée comme avec ces « camps de travail » (!)... J’ai visité un de ces camps en Allemagne et je ressens encore cette émotion, mélange de profonde tristesse, de colère, d’incompréhension, de compassion... Bref, je tenais à te dire qu’encore une fois ton livre m’a touché profondément! Je le digère encore, plusieurs semaines après l’avoir terminé... Je souhaite que tu poursuives encore longtemps ton travail d’écriture, de recherchiste et d’historienne car cette mémoire de la « petite vie » et des «misères» de l’humanité se doit d’être racontée! Merci pour ton travail! » Louis Roy.
+
+
 
 # Concernant Le Châtiment de Clara:
 
