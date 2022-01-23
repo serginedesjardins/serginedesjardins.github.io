@@ -129,7 +129,7 @@ Toujours est-il que, tout comme avec Le châtiment de Clara, ton dernier roman m
 
 « Les mots sont difficiles à trouver pour te dire à quel point j’ai adoré Un souvenir, mille remords. Les personnages que tu as inventés sont tellement attachants… Et lorsque tu parles des sous-marins allemands, je revivais les histoires que maman nous racontait : elle disait qu’il ne fallait pas allumer les lampes à l’huile, le soir, etc… Eh oui, elle a vécu cette époque; mais jamais elle ne nous a parlé de l’école de tir si près de chez-nous, ni papa… Quand tu parles de ceux qui avaient honte, cela m’a rappelé lorsqu’elle parlait de son oncle Norbert, quand celui-ci est revenu de cette guerre et s’est mis à boire et sans jamais parler un mot de ce qu’il a vécu… Encore une fois, en terminant ton œuvre, c’est comme si j’avais quitté un ami précieux… Ce roman me fut très enrichissant, comme tous les autres d’ailleurs. Félicitation. On t’aime. » Hélène Fortin, commentaire sur ma page Facebook, le 23 janvier 2022.
 
-
+« J’ai fini de lire ton dernier roman. Quel bonheur de lecture encore une fois, avec ton habileté à glisser l’Histoire en filigrane d’une histoire passionnante. J’ai lu les camps avec l’impression d’y être. Bravo pour cet opus magnifique, aux personnages qu’on n’oublie pas de sitôt. J’aime vraiment beaucoup ce que tu fais. » Anne-Marie Desbiens, auteure.
 
 
 
