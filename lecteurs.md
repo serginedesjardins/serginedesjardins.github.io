@@ -133,7 +133,7 @@ Toujours est-il que, tout comme avec Le châtiment de Clara, ton dernier roman m
 
 « Je viens de terminer Un souvenir, mille remords » de Sergine Desjardins et je vous le suggère fortement. Tout comme dans son roman Marie Major, l’auteure sait nous faire vibrer au plus profond de nous, entre autres sur la condition des femmes à l’époque de la deuxième guerre mondiale. Les personnages ayant réellement existés, qui s’ajoutent habilement aux personnages principaux rendent cette histoire encore plus intéressante. » Murielle Losier Michaud, commentaire sur la page Facebook Que lisez-vous, 28 janvier 2022.
 
-
+« J’ai adoré ton plus récent roman. Je suis encore habitée par ces personnages qui témoignent profondément de l’humain avec tendresse et rigueur. J’ai été captivée jusqu’à la dernière ligne par ces histoires, par la force de ces hommes et ces femmes. Merci pour ces beaux moments. J’espère que tu vas bien et que tu nous prépare un nouveau roman. » Lyse Bonenfant.
 
 
 # Concernant Le Châtiment de Clara:
