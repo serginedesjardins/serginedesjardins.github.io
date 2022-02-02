@@ -86,7 +86,7 @@ permalink: /lecteurs/
 
 « J'ai adoré ce livre. 10 sur 10. »  Diane Guénette, sur la page Facebook Pour ceux qui aiment lire. 15 novembre 2021.
 
-« Très bon livre. Je viens de le terminer. Excellent.» Fancine Despatie, sur la page Facebook Pour ceux qui aiment lire, 30 novembre 2021.
+« Très bon livre. Je viens de le terminer. Excellent.» Francine Despatie, sur la page Facebook Pour ceux qui aiment lire, 30 novembre 2021.
 
 « Je viens tout juste de terminer Un souvenir, mille remords, et c’est ce que j’ai lu de plus beau de tout ma vie. Merci.» Lise Girard
 
