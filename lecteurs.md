@@ -135,6 +135,13 @@ Toujours est-il que, tout comme avec Le châtiment de Clara, ton dernier roman m
 
 « J’ai adoré ton plus récent roman. Je suis encore habitée par ces personnages qui témoignent profondément de l’humain avec tendresse et rigueur. J’ai été captivée jusqu’à la dernière ligne par ces histoires, par la force de ces hommes et ces femmes. Merci pour ces beaux moments. J’espère que tu vas bien et que tu nous prépares un nouveau roman. » Lyse Bonenfant.
 
+«  Bonjour Sergine. J’ai terminé ton roman ce matin. Quel ravissement! Deux jeunes filles qui ont tout perdu et qui se reconstruisent une belle vie malgré les souffrances qui ont jalonné leur jeune vie. Tu dis avoir eu des moments de synchronicité en écrivant, moi aussi en le lisant. En janvier, j’ai lu le livre de Victor Frankl qui parle de sa vie dans les camps. Tu as écrit une histoire que je trouve magnifiquement bien ciselée. C’est un livre difficile à lâcher une fois qu’on y a plongé. Bref, BRAVO ma chère Sergine. J’ai passé un très bon moment de lecture. » Carmen Belzile, autrice.
+
+« Bonjour Madame. Je viens tout juste de terminer Un souvenir, mille remords. Je suis encore sous le choc. Vraiment entre l’ombre et la lumière. J’ai ADORÉ. Merci de tout cœur. » Danielle Deschamps.
+
+«  Sergine ! Comme ton roman mérite tous ces commentaires élogieux. Ta plume sait nous guider dans la grande histoire tout comme dans la petite. De plus, avec beaucoup de perspicacité, elle s’immisce dans le cœur des personnages ! On s’attache souvent à plusieurs d’entre eux, on en déteste aussi quelques-uns… À lire et à relire, tant Un souvenir, mille remords, recèle d’informations. J’ai hâte au prochain. » Rollande Lambert, commentaire sur ma page Facebook, 6 février 2022.
+
+
 
 # Concernant Le Châtiment de Clara:
 
