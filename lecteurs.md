@@ -141,7 +141,7 @@ Toujours est-il que, tout comme avec Le châtiment de Clara, ton dernier roman m
 
 «  Sergine ! Comme ton roman mérite tous ces commentaires élogieux. Ta plume sait nous guider dans la grande histoire tout comme dans la petite. De plus, avec beaucoup de perspicacité, elle s’immisce dans le cœur des personnages ! On s’attache souvent à plusieurs d’entre eux, on en déteste aussi quelques-uns… À lire et à relire, tant Un souvenir, mille remords, recèle d’informations. J’ai hâte au prochain. » Rollande Lambert, commentaire sur ma page Facebook, 6 février 2022.
 
-
+« J’ai lu ce livre avec émotion, j’en aurais lu encore des heures et des heures tellement c’est bien écrit et avec beaucoup de recherches. Merci à Dieu de t’avoir donné ce talent et d’en faire profiter les autres. Continue ton beau travail. » Murielle Normand, commentaire sur ma page Facebook, 8 février 2022.
 
 # Concernant Le Châtiment de Clara:
 
@@ -1009,6 +1009,8 @@ mes nièces, à mes amies. Il est à espérer que de nouveaux lecteurs et de
 nouvelles lectrices jouiront de votre roman.  Je me propose d'autres heures
 agréables à lire vos autres romans » - [Denise
 St-Jean](http://www.cyberpedago.blogspot.com).
+
+« Bonjour. J’habite en France et aujourd’hui, j’ai raté mon train. Devant patienter une heure, je me suis dirigée vers la boîte à livres qui était pleine et, allez savoir pourquoi, j’ai choisi Marie Major. Je ne suis pas une grande lectrice, mais j’ai déjà lu 3 chapitres et j’adore. Je vous découvre et suis ravie d’avoir raté ce train. » Quelques jours plus tard : « Bonjour Sergiene. J’espère que vous allez bien. J’ai terminé la lecture de votre livre et j’en suis triste. J’ai vraiment beaucoup aimé. J’aime les romans historiques et vous m’avez appris beaucoup de choses. En France, aucun cours d’histoire (jusqu’au baccalauréat) n’aborde la colonisation en Amérique (…) Votre roman m’a vraiment touchée par bien des aspects et je vous en remercie. Merci aussi de m’avoir répondu, c’était la première fois que j’écrivais à une romancière. J’en ai été flattée. Je ne devrais pas tarder à lire une autre de vos œuvres. Bonne continuation. » Régine Sivy.  
 
 « Une excellente auteure et de plus avec le même ancêtre que moi : Antoine Roy. Son excellent roman Marie Major m’a touchée jusqu’au cœur. » Diane St-Laurent. Rimouski. Sur ma page Facebook, 28 juillet 2017.
 
