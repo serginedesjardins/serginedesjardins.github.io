@@ -143,6 +143,8 @@ Toujours est-il que, tout comme avec Le châtiment de Clara, ton dernier roman m
 
 « J’ai lu ce livre avec émotion, j’en aurais lu encore des heures et des heures tellement c’est bien écrit et avec beaucoup de recherches. Merci à Dieu de t’avoir donné ce talent et d’en faire profiter les autres. Continue ton beau travail. » Murielle Normand, commentaire sur ma page Facebook, 8 février 2022.
 
+« Bonjour. Quelle brique de renseignements au sujet de la guerre 1939-1945. Bien entendu j’en connaissais des bribes mais j’en ai découvert l’horreur un peu plus dans votre magnifique livre. Merci de nous forcer à replonger dans ce carnage insensé que fut cette guerre (comme tant d’autres d’ailleurs). Je vais me procurer vos autres livres car j’adore l’histoire. Meilleures salutations. » Cécile Hubert, Acadienne des îles de la Madeleine
+
 # Concernant Le Châtiment de Clara:
 
 "Bonjour Sergine Desjardins! Je viens de terminer la lecture de votre roman: Le châtiment de Clara.Je suis très contente de pouvoir vous dire mon émerveillement à cette lecture. La profondeur des idées, l'intrigue, la riche documentation sur la vie quotidienne au 17e siècle, TOUT ce livre a concouru à mon bonheur. Je me dois de vous dire que j'ai lu tard dans la nuit. Il n'est pas exagéré de vous dire que j'ai dévoré votre roman. Merci de l'avoir écrit!" Suzanne Larocque, commentaire mis sur ma page Facebook, le 9 février 2019.
