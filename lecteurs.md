@@ -151,6 +151,8 @@ Toujours est-il que, tout comme avec Le châtiment de Clara, ton dernier roman m
 
 « Chacune de tes livres nous apporte du bonheur. » France Canuel.
 
+« Je viens de terminer la lecture de ce merveilleux roman. J’adore. » Diane Leclerc, commentaire sur ma page Facebook, 21-02-2022.
+
 # Concernant Le Châtiment de Clara:
 
 "Bonjour Sergine Desjardins! Je viens de terminer la lecture de votre roman: Le châtiment de Clara.Je suis très contente de pouvoir vous dire mon émerveillement à cette lecture. La profondeur des idées, l'intrigue, la riche documentation sur la vie quotidienne au 17e siècle, TOUT ce livre a concouru à mon bonheur. Je me dois de vous dire que j'ai lu tard dans la nuit. Il n'est pas exagéré de vous dire que j'ai dévoré votre roman. Merci de l'avoir écrit!" Suzanne Larocque, commentaire mis sur ma page Facebook, le 9 février 2019.
