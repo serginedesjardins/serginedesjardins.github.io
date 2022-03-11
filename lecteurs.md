@@ -157,6 +157,11 @@ Toujours est-il que, tout comme avec Le châtiment de Clara, ton dernier roman m
 
 « Quel merveilleux roman !!! qui m'a permit de découvrir des aspects méconnus de cette guerre. Bravo. » Ginette Rompré, commentaire sur ma page Facebook, 27-01-2022.
 
+« Je viens de passer une semaine avec vous et Un souvenir, mille remords. La vie nous offre de tellement bons moments parfois. Merci pour tant de bons mots! » Marie-France Rioux.
+
+« Je ne le lis pas, je le dévore. Bravo madame » Danièle Noël.
+
+
 # Concernant Le Châtiment de Clara:
 
 "Bonjour Sergine Desjardins! Je viens de terminer la lecture de votre roman: Le châtiment de Clara.Je suis très contente de pouvoir vous dire mon émerveillement à cette lecture. La profondeur des idées, l'intrigue, la riche documentation sur la vie quotidienne au 17e siècle, TOUT ce livre a concouru à mon bonheur. Je me dois de vous dire que j'ai lu tard dans la nuit. Il n'est pas exagéré de vous dire que j'ai dévoré votre roman. Merci de l'avoir écrit!" Suzanne Larocque, commentaire mis sur ma page Facebook, le 9 février 2019.
