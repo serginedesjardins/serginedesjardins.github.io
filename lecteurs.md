@@ -161,6 +161,8 @@ Toujours est-il que, tout comme avec Le châtiment de Clara, ton dernier roman m
 
 « Je ne le lis pas, je le dévore. Bravo madame » Danièle Noël.
 
+« Bonjour Sergine. J’ai lu Un souvenir, mille remords. Oh mon Dieu que j’ai adoré ce livre du début à la fin. Tu as une façon d’écrire que j’adore et aussi tu étais bien documenté au niveau historique. J’ai eu de la peine, de la frustration et pleins de débats dans ma tête pour cette période de l’histoire qui est assez cruelle. C’est juste Wow. J’en perds mes mots. Merci infiniment pour cette belle histoire. Je voulais te dire aussi que j’ai noté ton livre 5 étoiles sur Goodreads. Je te souhaite de continuer à écrire le plus longtemps possible. Je serai au rendez-vous comme lectrice. » Isabelle Parent.
+
 
 # Concernant Le Châtiment de Clara:
 
