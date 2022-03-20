@@ -163,6 +163,8 @@ Toujours est-il que, tout comme avec Le châtiment de Clara, ton dernier roman m
 
 « Bonjour Sergine. J’ai lu Un souvenir, mille remords. Oh mon Dieu que j’ai adoré ce livre du début à la fin. Tu as une façon d’écrire que j’adore et aussi tu étais bien documenté au niveau historique. J’ai eu de la peine, de la frustration et pleins de débats dans ma tête pour cette période de l’histoire qui est assez cruelle. C’est juste Wow. J’en perds mes mots. Merci infiniment pour cette belle histoire. Je voulais te dire aussi que j’ai noté ton livre 5 étoiles sur Goodreads. Je te souhaite de continuer à écrire le plus longtemps possible. Je serai au rendez-vous comme lectrice. » Isabelle Parent.
 
+«  Bon matin à vous. J’ai terminé Un secret, mille remords. Oh boy, j’ai adoré. Vraiment. Malgré la tristesse de ces gens dans les camps de concentration et toutes ces atrocités. Un passage qui m’a interpellée, c’est lorsque vous parlez de la Crèche St-Vincent-de-Paul à Québec où mes parents ont adopté, il y a 55 ans, le frère et la sœur alors âgés de 3 mois et de 2 ans. Ce qui est remarquable, c’est que nous étions déjà 7 enfants à la maison. Leur mère n’a jamais voulu les rencontrer. Chez-nous, ils ont été gâtés. Merci beaucoup pour cette magnifique histoire, triste mais vraie. » Francine Lessard. 
+
 
 # Concernant Le Châtiment de Clara:
 
