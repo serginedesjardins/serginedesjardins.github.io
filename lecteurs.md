@@ -527,6 +527,8 @@ Saint-Pascal.
 
 # Concernant Marie Major:
 
+" Bonjour Madame, Vous avez produit un ouvrage d'une grande qualité tant littéraire qu'historique. Marie Major est un livre remarquable en tout point de vue, l'un des plus éblouissants que j'ai lus eu égard à son excellence et à sa littéralité. Un ouvrage sublime qui, à mon humble avis, aurait mérité le prix Goncourt. Merci d'avoir publié ce magnifique roman. Meilleures salutations." Jean-Claude Romera, écrivain.
+
  « J'ai dévoré Marie Major en très peu de temps. J'ai adoré!
 Vous avez trouvé moyen de reconstituer une histoire plausible et passionnante
 avec bien peu d'éléments... Et, je n'en doute pas, beaucoup beaucoup de
