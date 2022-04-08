@@ -170,6 +170,17 @@ J’adore recevoir des messages de mes lecteurs et lectrices. Voici le plus réc
 
 « Bonjour madame Desjardins. Je termine à l’instant votre roman « Un souvenir, mille remords ». J’ai passé de belles heures, plongée dans ce monde qui semble tristement refaire surface de nos jours. Je tenais à vous remercier du message subtil, mais combien important et actuel, de tolérance et de bienveillance envers autrui. L’histoire se réécrit sans cesse et comme le dit si bien Kalinda, l’une de vos personnages : « Il n’y a que ceux qui ne retirent aucun enseignement de leurs erreurs qui peuvent vraiment avoir des remords. » Espérons… Je m’applique dans les jours à venir à me procurer d’autres de vos ouvrages. Mon gendre Carl Desjardins m’a offert Marie Major il y a quelque temps et j’ai ainsi pu vous découvrir avec plaisir. » Chantal Lisa Boivin.
 
+« J’ai tellement aimé Un souvenir, mille remords que j’en ai fait la promotion au club de lecture auquel je participe tout comme à mes proches. J’en ai aussi dit grand bien au personnel de la Librairie Fleury que je fréquente. J’ai hâte de livre votre prochaine histoire. Merci de nous faire vivre des histoires aussi marquantes. » Jocelyne Bradley, commentaire sur ma page Facebook 4-04-2022.
+
+« Je lis présentement votre dernier roman Un souvenir, mille remords. Je devrais dire dévore. 500 pages qui seront trop vite traversées. J’adore votre écriture. » Nicole Duperron, commentaire sur ma page Facebook 4-04-2022.
+
+« J’ai terminé ce roman il y a deux jours. Je ressens toujours une tristesse lorsque je termine tes romans parce que je m’attache aux personnages et c’est une coupure avec eux, comme s’ils étaient mes amis. J’ai eu la même réaction avec Robertine et Isa. Merci de nous faire connaître autant sur l’histoire de notre coin de pays, le Bas-St-Laurent et le Québec. Je vais commencer Isa, l’île de l’ermite dans quelques jours. Passe une belle journée Sergine. » Marie-Chantal Leblanc, commentaire sur ma page Facebook 4-04-2022.
+
+« Je suis en train de lire Un souvenir, mille remords et je dois admettre que je suis accroc à ce livre. Très hâte de continuer. Merci! » Lionel Arsenault, commentaire sur ma page Facebook 4-04-2022.
+
+« Moi, Sergine, je suis une heureuse matanaise qui a lut tout ce que tu as publié, et je suis fière de toi. Merci pour tous les bons moments que m’ont fait vivre tes romans. Continue d’écrire, je vais continuer de te lire. » Jeanne Côté, commentaire sur ma page Facebook 4-04-2022.
+
+« J’ai grandement apprécié l’écriture et le sujet. » Danièle Noël, commentaire sur ma page Facebook 4-04-2022.
 
 
 
