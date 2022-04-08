@@ -6,6 +6,14 @@ permalink: /agenda/
 
 # Calendrier des activités. 
 
+## 2023
+
+14 mars 2023, 9:30  :  Conférence à Rivière-du-Loup. Le thème : Robertine Barry. Hôte : Université du 3e âge.
+
+## 2022: 
+
+11 mai : Conférence via Zoom : Le thème : Robertine Barry (je parlerai des difficultés auxquelles a été confrontée cette première femme journaliste au 19e siècle et, plus brièvement, de celles que d'autres femmes journalistes ont connues ensuite). Hôte : Conseil central du Bas Saint-Laurent.
+
 ## 2021
 
 Le 21 octobre, 19 h : conférence Via Zoom. Le thème : Robertine Barry. On l'appelait Monsieur. Mon hôte: La Société d'histoire du Plateau-Mont-Royal. https://histoireplateau.org/
