@@ -110,8 +110,30 @@ d'époque [...] Le livre s'appelle Robertine Barry et c'est, comme vous l'avez
 vu, passionnant. » Commentaire de Joël Le Bigot à la fin de mon entrevue avec lui : Pourquoi pas dimanche. 9 mai 2010.
 
 « En 1907, se crée à Montréal le premier organisme féministe canadien-français : la Fédération nationale Saint-Jean-Baptiste. Les dames patronnesses qui l'animent, à l'ombre de l'archevêché, n'osent douter que Dieu ait modelé Ève à partir d'une côte d'Adam. Mais, au congrès de fondation, une conférencière cite Mark Twain au lieu de la Bible : Ce que l'on a trouvé de mieux pour façonner
-l'homme, c'est la femme. La conférencière insolente s'appelle Robertine Barry (1863-1910), connue sous le pseudonyme de Françoise. Sa biographie, Sergine Desjardins, qui raconte l'anecdote, complète, par un second tome, l'ouvrage le plus riche consacré à cette pionnière du journalisme féminin au Québec, notamment éditrice, entre 1902 et 1909, du bimensuel Le Journal de Françoise. Comme le précédent, le volume est si documenté, si vivant que l'on pardonne à l'historienne, influencée par l'art romanesque, de s'inspirer parfois de
-probabilités au lieu de s'appuyer sur des faits avérés. D'ailleurs, elle prend alors les précautions nécessaires en exprimant un doute. » - Michel Lapierre. Le Devoir, 20 mars 2011.
+l'homme, c'est la femme. La conférencière insolente s'appelle Robertine Barry (1863-1910), connue sous le pseudonyme de
+Françoise. Sa biographe, Sergine Desjardins, qui raconte l'anecdote, complète, par un second tome,
+l'ouvrage le plus riche consacré à cette pionnière du journalisme féminin au Québec, notamment
+éditrice, entre 1902 et 1909, du bimensuel Le Journal de Françoise.
+Comme le précédent, le volume est si documenté, si vivant que l'on pardonne à l'historienne, influencée
+par l'art romanesque, de s'inspirer parfois de probabilités au lieu de s'appuyer sur des faits avérés.
+D'ailleurs, elle prend alors les précautions nécessaires en exprimant un doute.
+Un féminisme catholique de droite. L'impertinence que se permet Robertine Barry au congrès de 1907 indispose fort Mgr Paul Bruchési. Cet
+archevêque de Montréal est présent pour rappeler que les «féministes chrétiennes», comme se
+désignent elles-mêmes Marie Gérin-Lajoie (née Lacoste) et les autres dirigeantes de la nouvelle
+fédération, doivent éviter de parler d'une horreur de la libre pensée: «l'émancipation de la femme»!
+Nos militantes s'inspirent de Marie Maugeret, qui avait fondé en France la Société des féministes
+chrétiennes (1896), même si elles ne tiennent apparemment pas compte du fait que cette catholique de
+droite avait créé deux ans après une ligue féminine nationaliste, antidreyfusarde, antisémite... Robertine
+Barry fait partie de leur fédération et se préoccupe, elle aussi, de sujets comme l'éducation des enfants
+et la tempérance, mais soutient davantage les idées audacieuses.
+Le droit de vote féminin, elle l'affirme plus fermement que Marie Gérin-Lajoie, qui, par docilité envers
+l'épiscopat, ira jusqu'à démissionner en 1922 de la présidence de la section francophone du comité
+formé pour revendiquer ce droit aux élections provinciales.
+Robertine Barry voyait, hélas, dans le cimetière une «immense république, la seule encore où se sont
+réalisées les creuses utopies d'égalité et de fraternité»! Fidèle à la foi de son enfance malgré un vif
+désaccord avec un clergé hostile à la cause des femmes, elle écrivit en 1906: «La religion canadienne
+est absolument dépourvue de la base qui fait le vrai catholicisme si divinement humain.» Mais même
+Rome n'aurait pas daigné satisfaire son idéalisme naïf et déchirant. » - Michel Lapierre. Le Devoir, 20 mars 2011.
 
 « Le premier volet de cette biographie, malgré son intérêt certain nous avait
 laissé songeur. Ce deuxième tome emporte d'emblée l'adhésion; même qu'il donne
