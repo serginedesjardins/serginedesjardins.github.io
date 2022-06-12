@@ -182,6 +182,9 @@ J’adore recevoir des messages de mes lecteurs et lectrices. Voici le plus réc
 
 « J’ai grandement apprécié l’écriture et le sujet. » Danièle Noël, commentaire sur ma page Facebook 4-04-2022.
 
+« Merci pour cette œuvre. Je viens de vous découvrir et vous embellissez ma vie.» Hélène-Lise Trudeau, 11-06-2022.
+
+
 
 
 # Concernant Le Châtiment de Clara:
