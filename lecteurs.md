@@ -186,7 +186,6 @@ J’adore recevoir des messages de mes lecteurs et lectrices. Voici le plus réc
 
 
 
-
 # Concernant Le Châtiment de Clara:
 
 "Bonjour Sergine Desjardins! Je viens de terminer la lecture de votre roman: Le châtiment de Clara.Je suis très contente de pouvoir vous dire mon émerveillement à cette lecture. La profondeur des idées, l'intrigue, la riche documentation sur la vie quotidienne au 17e siècle, TOUT ce livre a concouru à mon bonheur. Je me dois de vous dire que j'ai lu tard dans la nuit. Il n'est pas exagéré de vous dire que j'ai dévoré votre roman. Merci de l'avoir écrit!" Suzanne Larocque, commentaire mis sur ma page Facebook, le 9 février 2019.
@@ -299,6 +298,10 @@ Message sur Facebook, le 28 mai : « Je suis en train de lire Le châtiment de C
 
 « Rien dans mon vécu n’aurait pu expliquer les sentiments de colère et de tristesse que ton livre a suscité en moi! Le génie de l’écrivaine sans doute! (...) Je tenais à te dire qu’encore une fois ton livre m’a touché profondément! Je le digère encore, plusieurs semaines après l’avoir terminé... Je souhaite que tu poursuives encore longtemps ton travail d’écriture, de recherchiste et d’historienne car cette mémoire de la « petite vie » et des « misères » de l’humanité se doit d’être racontée! Merci pour ton travail! » Louis Roy.
 
+« J'ai eu plaisir à connaître Robertine Barry, je me souviendrai longtemps de Clara, j'ai aimé Rose, Dorothée et Kalinda. 
+Je tourne les premières pages de Isa.
+Me restera à côtoyer Marie Major...
+Merci, c'est un honneur de lire vos femmes!» Marie-France Rioux.
 
 
 # Concernant Isa:
