@@ -551,6 +551,32 @@ Saint-Pascal.
 
 # Concernant Marie Major:
 
+« J’ai dévoré vos livres. Ils sont écrits dans le style des grands écrivains, avec intelligence… pas de longueurs inutiles. Je lis et relis vos écrits. Ils me passionnent. Bravo.» Raymonde Talbot. Commentaire sur ma page Facebook du 22 juin 2022 dans laquelle j’annonçais la publication de l’édition spéciale 15e anniversaire de Marie Major. 
+
+« Being a direct descendant of Marie Major. Il was eager to read this novel. Il don’t speak or read French so I had it translated. Il was totally shocked, saddened & dismayed by Marie’s tragic life & fate. I would love to meet with you one day & discuss our ancestral heritage & discuss your novel. Congratulations on the 9th edition. The power & dynamic of Marie Major’s soul lives on. Injustice is timeless ! »Astrid Clements, commentaire sur ma page Facebook du 22 juin 2022 dans laquelle j’annonçais la publication de l’édition spéciale 15e anniversaire de Marie Major. 
+
+« This book is great ! Brings the time period to life… And really truly needs to be translated into English for the ancestry fans and genealogists to read ! Thank you cousin for writing this amazing, inspiring and historical fiction for every descendant (Desjardins or Roy ) of Antoine and Marie who were told the story at family aatherings throughout the years. Your book is wonderful ! » Kim Carter, commentaire sur ma page Facebook du 22 juin 2022 dans laquelle j’annonçais la publication de l’édition spéciale 15e anniversaire de Marie Major. 
+
+« C’est un excellent volume, très bien écrit. Merci Sergine pour ta merveilleuse plume qui nous transporte ailleurs.» Suzanne Lapierre, commentaire sur ma page Facebook du 22 juin 2022 dans laquelle j’annonçais la publication de l’édition spéciale 15e anniversaire de Marie Major. 
+
+« Félicitations. Un ouvrage de grande qualité. » Reggie Pigeon, commentaire sur ma page Facebook du 22 juin 2022 dans laquelle j’annonçais la publication de l’édition spéciale 15e anniversaire de Marie Major.
+
+« Un anniversaire qui se devait d’être souligné. Un superbe roman d’amour historique qui reflète toute ta sensibilité, ton empathie et ton respect pour nos ancêtres.» Diane Laurendeau Beaulieu, commentaire sur ma page Facebook du 22 juin 2022 dans laquelle j’annonçais la publication de l’édition spéciale 15e anniversaire de Marie Major.
+
+« J’en ai 2 et je compte bien me procurer le spécial 15e anniversaire. Merci et félicitations.» Monique Mo Desautels, commentaire sur ma page Facebook du 22 juin 2022 dans laquelle j’annonçais la publication de l’édition spéciale 15e anniversaire de Marie Major.
+
+« Je recommande ce roman à tous.» Murielle Normand, commentaire sur ma page Facebook du 22 juin 2022 dans laquelle j’annonçais la publication de l’édition spéciale 15e anniversaire de Marie Major.
+
+« C’est avec plaisir que je partage. Je conserve un très bon souvenir de la lecture de votre livre.» Domnique Fabre, commentaire sur ma page Facebook du 22 juin 2022 dans laquelle j’annonçais la publication de l’édition spéciale 15e anniversaire de Marie Major.
+
+« Pas étonnant qu’il soit de nouveau édité, c’est tellement un bon roman, comme tous ceux que vous avez publiés d’ailleurs. Très heureuse pour vous.»  Nicole Duperron, commentaire sur ma page Facebook du 22 juin 2022 dans laquelle j’annonçais la publication de l’édition spéciale 15e anniversaire de Marie Major.
+
+« Je suis franco-ontarienne et je viens juste de vous découvrir. Vous êtes une autrice extraordinaire ! Je vais dire à mes amies de vous lire ! Vous êtes maintenant mon autrice préférée. Merci infiniment.» Louise Champagne-Guindon, commentaire sur ma page Facebook du 22 juin 2022 dans laquelle j’annonçais la publication de l’édition spéciale 15e anniversaire de Marie Major.
+
+
+![image](https://user-images.githubusercontent.com/8682441/175305966-40aeea44-81a5-4817-8e39-f18a53986083.png)
+
+
 " Bonjour Madame, Vous avez produit un ouvrage d'une grande qualité tant littéraire qu'historique. Marie Major est un livre remarquable en tout point de vue, l'un des plus éblouissants que j'ai lus eu égard à son excellence et à sa littéralité. Un ouvrage sublime qui, à mon humble avis, aurait mérité le prix Goncourt. Merci d'avoir publié ce magnifique roman. Meilleures salutations." Jean-Claude Romera, écrivain.
 
  « J'ai dévoré Marie Major en très peu de temps. J'ai adoré!
