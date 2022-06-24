@@ -577,9 +577,6 @@ Saint-Pascal.
 « Je suis franco-ontarienne et je viens juste de vous découvrir. Vous êtes une autrice extraordinaire ! Je vais dire à mes amies de vous lire ! Vous êtes maintenant mon autrice préférée. Merci infiniment.» Louise Champagne-Guindon, commentaire sur ma page Facebook du 22 juin 2022 dans laquelle j’annonçais la publication de l’édition spéciale 15e anniversaire de Marie Major.
 
 
-![image](https://user-images.githubusercontent.com/8682441/175305966-40aeea44-81a5-4817-8e39-f18a53986083.png)
-
-
 " Bonjour Madame, Vous avez produit un ouvrage d'une grande qualité tant littéraire qu'historique. Marie Major est un livre remarquable en tout point de vue, l'un des plus éblouissants que j'ai lus eu égard à son excellence et à sa littéralité. Un ouvrage sublime qui, à mon humble avis, aurait mérité le prix Goncourt. Merci d'avoir publié ce magnifique roman. Meilleures salutations." Jean-Claude Romera, écrivain.
 
  « J'ai dévoré Marie Major en très peu de temps. J'ai adoré!
