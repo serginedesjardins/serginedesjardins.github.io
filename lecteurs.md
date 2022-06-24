@@ -189,6 +189,9 @@ Je tourne les premières pages de Isa.
 Me restera à côtoyer Marie Major...
 Merci, c'est un honneur de lire vos femmes!» Marie-France Rioux.
 
+« Je viens de finir la lecture de votre dernier-né : Un souvenir, mille remords. Merci beaucoup pour toutes ces pages sur la guerre mais surtout sur l’amitié, l’entraide, la bonté, l’art et la résilience. À chaque roman, j’ai hâte de continuer à lire ! Je suis une vraie fan !!! Merci de nous permettre de vivre de si bons moments !!!!» Diane Milette, commentaire sur ma page Facebook, le 24 juin 2022.
+
+
 
 
 # Concernant Le Châtiment de Clara:
@@ -1090,6 +1093,8 @@ St-Jean](http://www.cyberpedago.blogspot.com).
 « Une excellente auteure et de plus avec le même ancêtre que moi : Antoine Roy. Son excellent roman Marie Major m’a touchée jusqu’au cœur. » Diane St-Laurent. Rimouski. Sur ma page Facebook, 28 juillet 2017.
 
 « J’ai adoré cette lecture très spéciale de lire quelque chose de vrai et si cruel que j’en ai la chair de poule. En plus, je connais pratiquement tous les endroits nommés. J’ai même habité dans certaines villes citées dans le roman. C’est tellement bien écrit et décrit. L’annexe à la fin fut très appréciée. Merci beaucoup Sergine Desjardins de m’avoir fait vivre ce roman si intense. J’ai vraiment adoré Marie Major. Tout le monde doit lire ce roman. » Lise Ouellet, sur sa page Facebook, 4 septembre 2017.
+
+
 
 
 
