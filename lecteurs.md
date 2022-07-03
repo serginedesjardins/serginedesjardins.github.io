@@ -191,6 +191,7 @@ Merci, c'est un honneur de lire vos femmes!» Marie-France Rioux.
 
 « Je viens de finir la lecture de votre dernier-né : Un souvenir, mille remords. Merci beaucoup pour toutes ces pages sur la guerre mais surtout sur l’amitié, l’entraide, la bonté, l’art et la résilience. À chaque roman, j’ai hâte de continuer à lire ! Je suis une vraie fan !!! Merci de nous permettre de vivre de si bons moments !!!!» Diane Milette, commentaire sur ma page Facebook, le 24 juin 2022.
 
+« J’ai beaucoup aimé Un souvenir, mille remords. J’attends le prochain avec impatience.» Hélène Houle.
 
 
 
