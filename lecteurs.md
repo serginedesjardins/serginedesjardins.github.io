@@ -1102,6 +1102,9 @@ St-Jean](http://www.cyberpedago.blogspot.com).
 
 « Bravo ! J’ai lu la 1e version. Magnifique ! Je viens de finir la lecture de votre dernier-né : Un souvenir, mille remords. Merci beaucoup pour toutes ces pages sur la guerre mais surtout sur l’amitié, l’entraide, la bonté, l’art et la résilience. À chaque roman, j’ai hâte de continuer à lire ! Je suis une vraie fan !!! Merci de nous permettre de vivre de si bons moments !!! » Diane Milette. Commentaire sur ma page Facebook du 22 juin 2022 dans laquelle j’annonçais la publication de l’édition spéciale 15e anniversaire de Marie Major. ! 
 
+« Je suis justement en train de le lire, et j’adore cette histoire. Un vrai voyage dans le temps.»  Madeleine Tanguay. Commentaire sur ma page Facebook du 22 juin 2022 dans laquelle j’annonçais la publication de l’édition spéciale 15e anniversaire de Marie Major. 
+
+
 
 
 
