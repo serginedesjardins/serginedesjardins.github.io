@@ -193,6 +193,7 @@ Merci, c'est un honneur de lire vos femmes!» Marie-France Rioux.
 
 « J’ai beaucoup aimé Un souvenir, mille remords. J’attends le prochain avec impatience.» Hélène Houle.
 
+« Bonjour, Je viens de terminer la lecture de votre roman Un souvenir, mille remords. Je vous remercie pour ce magnifique roman, rempli de douleurs, mais entouré d’espoir, de résilience, de tendresse et la nécessité de se donner du support les uns les autres dans nos moments de vulnérabilité, de souffrances. J’ai adoré ce livre. Je n’étais pas une lectrice, mais présente avec vos personnages, tellement c’est bien écrit. Heureuse de l’avoir lu, j’ai été touché tout au long.»  Lyse Lavoie. Commentaire sur ma page Facebook, 11 juillet 2022.
 
 
 # Concernant Le Châtiment de Clara:
