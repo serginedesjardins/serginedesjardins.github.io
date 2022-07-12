@@ -195,6 +195,9 @@ Merci, c'est un honneur de lire vos femmes!» Marie-France Rioux.
 
 « Bonjour, Je viens de terminer la lecture de votre roman Un souvenir, mille remords. Je vous remercie pour ce magnifique roman, rempli de douleurs, mais entouré d’espoir, de résilience, de tendresse et la nécessité de se donner du support les uns les autres dans nos moments de vulnérabilité, de souffrances. J’ai adoré ce livre. Je n’étais pas une lectrice, mais présente avec vos personnages, tellement c’est bien écrit. Heureuse de l’avoir lu, j’ai été touché tout au long.»  Lyse Lavoie. Commentaire sur ma page Facebook, 11 juillet 2022.
 
+« Je suis fan de votre écriture. Marie Major, j’ai adoré. Tous les autres également.» Madone Langlois.
+
+
 
 # Concernant Le Châtiment de Clara:
 
@@ -1105,6 +1108,7 @@ St-Jean](http://www.cyberpedago.blogspot.com).
 
 « Je suis justement en train de le lire, et j’adore cette histoire. Un vrai voyage dans le temps.»  Madeleine Tanguay. Commentaire sur ma page Facebook du 22 juin 2022 dans laquelle j’annonçais la publication de l’édition spéciale 15e anniversaire de Marie Major. 
 
+Je suis fan de votre écriture. Marie Major, j’ai adoré. Tous les autres également. Madone Langlois.![image](https://user-images.githubusercontent.com/8682441/178604907-40f25522-e60e-4d95-ba5f-d3eb0930ba9b.png)
 
 
 
