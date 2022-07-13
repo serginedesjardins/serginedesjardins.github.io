@@ -197,6 +197,7 @@ Merci, c'est un honneur de lire vos femmes!» Marie-France Rioux.
 
 « Je suis fan de votre écriture. Marie Major, j’ai adoré. Tous les autres également.» Madone Langlois.
 
+« Je viens de terminer la lecture de votre roman Un souvenir, mille remords que j’ai lu avec grand intérêt. Je vous félicite pour ce roman historique et féministe. J’ai beaucoup apprécié votre style d’écriture. Votre conclusion nous offre l’espoir.» Françoise Kreussler. 
 
 
 # Concernant Le Châtiment de Clara:
