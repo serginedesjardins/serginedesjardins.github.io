@@ -1112,7 +1112,10 @@ St-Jean](http://www.cyberpedago.blogspot.com).
 
 « Je suis justement en train de le lire, et j’adore cette histoire. Un vrai voyage dans le temps.»  Madeleine Tanguay. Commentaire sur ma page Facebook du 22 juin 2022 dans laquelle j’annonçais la publication de l’édition spéciale 15e anniversaire de Marie Major. 
 
-Je suis fan de votre écriture. Marie Major, j’ai adoré. Tous les autres également. Madone Langlois.![image](https://user-images.githubusercontent.com/8682441/178604907-40f25522-e60e-4d95-ba5f-d3eb0930ba9b.png)
+« Je suis fan de votre écriture. Marie Major, j’ai adoré. Tous les autres également.»  Madone Langlois.
+
+« Je viens de terminer Marie Major. J’ai adoré, mais j’en suis sortie choquée de voir comment les femmes étaient traitées, des moins que rien, des objets. On a fait un bon chemin depuis ce temps, mais il en reste encore malheureusement. » Hélène Houle.
+
 
 
 
