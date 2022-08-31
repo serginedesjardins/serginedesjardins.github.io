@@ -201,6 +201,8 @@ Merci, c'est un honneur de lire vos femmes!» Marie-France Rioux.
 
 « Chère Sergine. Je viens de terminer la lecture de Un souvenir, mille remords. Merci, ce fut pour moi une expérience de découvrir toute l’horreur de la guerre, des camps et toutes les souffrances de ces hommes, femmes et enfants. L’histoire de ces femmes, ces héroïnes qui ont parcouru un chemin plein d’embûches qui étaient omniprésentes. Cette bataille est présente encore, nous ne devons pas baisser les bras pour les générations à venir. Merci Sergine, pour ton amour de l’histoire, de tes mots qui nous transportent au temps décrit. J'ai aimé Un souvenir... comme tous tes autres romans.» Maud Desjardins.
 
+« Bonjour Mme Desjardins. Je viens de terminer votre merveilleux roman Un souvenir, mille remords. Suite à une épreuve de la vie j'avais perdu le goût de la lecture car incapable de me concentrer. Comment vous dire ma reconnaissance que votre roman m'a permis de renouer avec ce plaisir extraordinaire. Le propos de votre roman est éducatif, instructif il touche autant le cœur que l’esprit. Mille mercis. » Suzanne Bernatchez
+
 
 
 # Concernant Le Châtiment de Clara:
