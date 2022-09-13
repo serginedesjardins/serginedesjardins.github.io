@@ -203,7 +203,7 @@ Merci, c'est un honneur de lire vos femmes!» Marie-France Rioux.
 
 « Bonjour Mme Desjardins. Je viens de terminer votre merveilleux roman Un souvenir, mille remords. Suite à une épreuve de la vie j'avais perdu le goût de la lecture car incapable de me concentrer. Comment vous dire ma reconnaissance que votre roman m'a permis de renouer avec ce plaisir extraordinaire. Le propos de votre roman est éducatif, instructif il touche autant le cœur que l’esprit. Mille mercis. » Suzanne Bernatchez
 
-
+« Je viens de terminer votre livre UN SOUVENIR, MILLE REMORDS. La première partie est difficile, j'en suis encore bouleversée, la deuxième partie, le retour, nous fait réfléchir à la chance que nous avons. Bravo pour cette belle histoire qui nous touche.» Carole Lussier.
 
 # Concernant Le Châtiment de Clara:
 
