@@ -303,6 +303,17 @@ Monsieur, est déjà dans ma Pile À Lire!. » Opaline. <a href="http://biblimag
 
 # Critiques de Marie Major
 
+« Cette édition est une nouvelle édition d’un roman paru il y a quelques années.
+J’avais adoré quand j’ai lu, et aujourd’hui, et bien avec cette nouvelle édition, j’ai plus qu’adoré. Sergine Desjardins a toujours su m’insuffler un coup de cœur, lors de mes lectures, et elle n’a pas fait exception.
+J’ai beaucoup aimé me replonger dans l’histoire de Marie Major, cette jeune femme devenue Fille du roy, et envoyée en Nouvelle-France.
+Quelque temps après son arrivée, elle épouse Antoine, qui s’éprend amoureusement de la jeune femme, mais cela ne durera pas, il se lance dans une affaire extra-conjugale et prend maîtresse, mais ça aussi va mal tourner, puisque sa maîtresse est mariée, et ils sont surpris par le mari de la belle, qui prit d’une colère folle va tuer Antoine.
+Le blâme est toutefois mis sur Marie, celle qui a péché pour ne pas avoir su retenir son mari dans son propre lit. Marie essaie tant bien que mal de refaire surface tout en voulant protéger son fils.
+Les amis et les alliés se font rares à l’exception de Platon, esclave amérindien, qui deviendra son ami, et pour Marie, cet homme représente l’amour qu’elle recherche tant.
+Mais rien ne se fera sans heurts, et cette belle histoire d’amour vient quand même mettre un baume sur le drame qu’elle a vécu, et tout ça à cause de son mari.
+Que puis-je vous dire de plus, c’est une ré-édition bien sûr, mais c’est aussi prenant que la première fois que j’avais lu, la plume de Sergine Desjardins nous fait oublier que nous sommes dans un livre, les émotions sont gigantesques, on adore Marie, les descriptions tellement bien, que l’on se croirait sur place.
+Un beau coup de cœur énorme, des émotions très fortes, je vous recommande tellement cette lecture et vous souhaite de vivre les mêmes émotions que moi, j’ai vécu à travers les mots. » Le commentaire de Lynda : ♥Coup de coeur ♥
+https://lesmilleetunlivreslm.over-blog.com/2022/10/marie-major-editions-speciale-15e-anniversaire-sergine-desjardins-guy-saint-jean-editeur-par-lynda-massicotte.html
+
 « Ce roman fait honneur à la famille des romans historiques. L'auteure
 s'astreint à une recherche minutieuse, mais elle comble librement les vides
 laissés par une histoire forcément stylisée. À cela s'ajoute une chaude
