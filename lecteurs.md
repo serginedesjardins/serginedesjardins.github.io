@@ -205,6 +205,9 @@ Merci, c'est un honneur de lire vos femmes!» Marie-France Rioux.
 
 « Je viens de terminer votre livre UN SOUVENIR, MILLE REMORDS. La première partie est difficile, j'en suis encore bouleversée, la deuxième partie, le retour, nous fait réfléchir à la chance que nous avons. Bravo pour cette belle histoire qui nous touche.» Carole Lussier.
 
+« Bonjour, je viens de terminer la lecture de ce livre qui est un chef-d’œuvre. Vous m’avez fait voyager dans l’horreur qu’était la guerre, les nazis et l’holocauste. Félicitation pour votre belle écriture et au plaisir de dévorer un autre de vos livres.» Yves S. Marseille
+
+
 # Concernant Le Châtiment de Clara:
 
 "Bonjour Sergine Desjardins! Je viens de terminer la lecture de votre roman: Le châtiment de Clara.Je suis très contente de pouvoir vous dire mon émerveillement à cette lecture. La profondeur des idées, l'intrigue, la riche documentation sur la vie quotidienne au 17e siècle, TOUT ce livre a concouru à mon bonheur. Je me dois de vous dire que j'ai lu tard dans la nuit. Il n'est pas exagéré de vous dire que j'ai dévoré votre roman. Merci de l'avoir écrit!" Suzanne Larocque, commentaire mis sur ma page Facebook, le 9 février 2019.
