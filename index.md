@@ -5,7 +5,8 @@ permalink: /
 ---
 
 <div style='float:right; padding: 10px; font-size: 0.8em; text-align: center'>
-  <img style="padding-bottom:0.5em;" src='images/sergine2021-small.png' alt='photo'><br/>
+  <img style="padding-bottom:0.5em;" src="images/2016-08-07 07.30.31-small.jpg" alt='photo'><br/>
+  <p>Photo prise en août 2016.</p>
 </div>
 
 Ayant quitté l'école à l'âge de 16 ans, j'ai pratiqué divers métiers avant de retourner aux études et de compléter une maîtrise en éthique.
