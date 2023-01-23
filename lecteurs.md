@@ -211,7 +211,7 @@ Merci, c'est un honneur de lire vos femmes!» Marie-France Rioux.
 « Bon matin, ma très chère autrice. J’ai tellement aimé vous lire ! J’aime aussi France Lorrain et plusieurs bonnes autres autrices québécoises : notamment Claire Bergeron et Suzanne Aubry qui sont du même calibre que vous !
 J’ai travaillé à Ottawa dans une librairie durant 25 ans et l’on me demande souvent quels auteurs je recommande. Je ne vous oublie jamais, parmi mes autrices préférées. Dans mon petit village, nous avons un club de lecture à la bibliothèque municipale, je vais suggérer votre nom afin que d’autres personnes vous lisent. Et vous aiment autant que moi !!! Lorsque je travaillais à la librairie et que Michel David est décédé nous en parlions comme s’il était un membre de nos familles. Il y a 3 ans, j’ai invité Claire Bergeron, nous étions tellement contentes de la rencontrer ! » Louise Champagne-Guindon.
 
-« Je termine tout juste votre magnifique roman, Un souvenir, mille remords. Bravo : j’ai appris beaucoup sur les atrocités de la dernière guerre. Je ne vous connaissais pas, mais quel plaisir de vous lire et je m’apprête à vous lire de nouveau. Alors, je retourne à la BANQ. Merci. » Jean Tremblay.![image](https://user-images.githubusercontent.com/8682441/213948097-5893edf0-8630-49b6-87bd-c01e47775a90.png)
+« Je termine tout juste votre magnifique roman, Un souvenir, mille remords. Bravo : j’ai appris beaucoup sur les atrocités de la dernière guerre. Je ne vous connaissais pas, mais quel plaisir de vous lire et je m’apprête à vous lire de nouveau. Alors, je retourne à la BANQ. Merci. » Jean Tremblay.
 
 
 
