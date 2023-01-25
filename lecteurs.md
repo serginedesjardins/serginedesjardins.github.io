@@ -64,7 +64,7 @@ permalink: /lecteurs/
 
 « Je l’ai lu et beaucoup aimé. » Diane Poirier. Commentaire sur la page Facebook de Raynald Horth, 12 novembre 2021.
 
-« Je viens de terminer la lecture de Un souvenir, mille remords. J’avais de la difficulté à m’arrêter tellement je l’ai trouvé captivant. J’ai pleuré de voir tout ce que ces Juifs ont dû souffrit, de voir aussi toutes les amitiés sincères qui se sont développées, de voir la bonté et la résilience de ces personnes. Bravo pour cette belle histoire d’amour. J’avais lu L’île de l’ermite et L’île des exclus que j’ai aussi bien aimé. Merci pour ces belles heures que j’ai passé à vous lire. Lâchez Pas. » Louisette Fouquet, commentaire sur ma page Facebook, 26-11-2021.
+« Je viens de terminer la lecture de Un souvenir, mille remords. J’avais de la difficulté à m’arrêter tellement je l’ai trouvé captivant. J’ai pleuré de voir tout ce que ces Juifs ont dû souffrir, de voir aussi toutes les amitiés sincères qui se sont développées, de voir la bonté et la résilience de ces personnes. Bravo pour cette belle histoire d’amour. J’avais lu L’île de l’ermite et L’île des exclus que j’ai aussi bien aimé. Merci pour ces belles heures que j’ai passé à vous lire. Lâchez Pas. » Louisette Fouquet, commentaire sur ma page Facebook, 26-11-2021.
 
 « Je viens de finir votre roman Un souvenir, mille remords. J’ai adoré. » France Bernier. 
 
@@ -88,7 +88,7 @@ permalink: /lecteurs/
 
 « Très bon livre. Je viens de le terminer. Excellent.» Francine Despatie, sur la page Facebook Pour ceux qui aiment lire, 30 novembre 2021.
 
-« Je viens tout juste de terminer Un souvenir, mille remords, et c’est ce que j’ai lu de plus beau de tout ma vie. Merci.» Lise Girard
+« Je viens tout juste de terminer Un souvenir, mille remords, et c’est ce que j’ai lu de plus beau de toute ma vie. Merci.» Lise Girard
 
 « J’ai terminé de lire ton dernier roman il y a quelques semaines et il m’habite encore. J’ai vraiment beaucoup apprécié. Encore une fois merci.» Marlene Carrier, commentaire sur ma page Facebook, 1er janvier 2022.
 
