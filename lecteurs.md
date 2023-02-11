@@ -1130,8 +1130,7 @@ St-Jean](http://www.cyberpedago.blogspot.com).
 
 « Je viens de terminer Marie Major. J’ai adoré, mais j’en suis sortie choquée de voir comment les femmes étaient traitées, des moins que rien, des objets. On a fait un bon chemin depuis ce temps, mais il en reste encore malheureusement. » Hélène Houle.
 
-
-
+« Bonjour, je viens de terminer votre roman Marie Major, j'ai beaucoup aimer cette leçon d'histoire du Québec. j'aime votre écriture aussi... je vais m'empresser de suggérer ce livre à ma soeur qui aime la généalogie et ce qui est écrit sur les Filles du Roy... je dois maintenant faire mon deuil de ce roman, et partir à la recherche d'un écrit qui va autant me captiver... j'ai aussi sur ma liste "à lire" Un souvenir, mille remords... je vous ferai part de mes commentaires. Bonne fin de journée. » Cécile Fortier.
 
 
 
