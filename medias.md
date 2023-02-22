@@ -6,6 +6,8 @@ permalink: /medias/
 
 # Entrevues
 
+Un article de Maurice Gagnon dans la revue Le Bel âge : https://lebelage.ca/entre-nous/temoignages/jecris-la-vie-de-mes-ancetres/
+
 Un article du journaliste Maurice Gagnon dans La Rumeur du Loup : https://www.rumeurduloup.com/vivre-a-travers-le-roman/
 
 Un article de Marie-France Bornais dans le Journal de Québec, le 8 janvier 2022. Mont-Joli au temps de la guerre : https://www.journaldequebec.com/2022/01/08/un-souvenir-mille-remords-mont-joli-au-temps-de-la-guerre
