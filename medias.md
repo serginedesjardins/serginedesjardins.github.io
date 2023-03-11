@@ -6,7 +6,7 @@ permalink: /medias/
 
 # Entrevues
 
-*11 mars 2023*: [Entrevue avec Isabelle Craig, émission Lève-tôt, Radio-Canada.](https://sergine-desjardins/files/2023-03-11-Isabelle-Craig.mp3)
+*11 mars 2023*: [Entrevue avec Isabelle Craig, émission Lève-tôt, Radio-Canada.](https://sergine-desjardins.com/files/2023-03-11-Isabelle-Craig.mp3)
 
 *Octobre 2022*: [Un article de Maurice Gagnon dans la revue Le Bel âge.](https://lebelage.ca/entre-nous/temoignages/jecris-la-vie-de-mes-ancetres/)
 
