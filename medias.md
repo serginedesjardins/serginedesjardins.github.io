@@ -6,15 +6,13 @@ permalink: /medias/
 
 # Entrevues
 
-Entrevue avec Isabelle Craig, émission Lève-tôt, Radio-Canada: 
-: https://ici.radio-canada.ca/ohdio/premiere/emissions/leve-tot/episodes/693211/rattrapage-du-samedi-11-mars-2023
-![image](https://user-images.githubusercontent.com/8682441/224487694-0c6ac2bd-eeb6-429f-b4fd-43888d1d7ed8.png)
+*11 mars 2023*: [Entrevue avec Isabelle Craig, émission Lève-tôt, Radio-Canada.](https://sergine-desjardins/files/2023-03-11-Isabelle-Craig.mp3)
 
-Un article de Maurice Gagnon dans la revue Le Bel âge : https://lebelage.ca/entre-nous/temoignages/jecris-la-vie-de-mes-ancetres/
+*Octobre 2022*: [Un article de Maurice Gagnon dans la revue Le Bel âge.](https://lebelage.ca/entre-nous/temoignages/jecris-la-vie-de-mes-ancetres/)
 
-Un article du journaliste Maurice Gagnon dans La Rumeur du Loup : https://www.rumeurduloup.com/vivre-a-travers-le-roman/
+*10 avril 2022*: [Un article du journaliste Maurice Gagnon dans La Rumeur du Loup.](https://www.rumeurduloup.com/vivre-a-travers-le-roman/)
 
-Un article de Marie-France Bornais dans le Journal de Québec, le 8 janvier 2022. Mont-Joli au temps de la guerre : https://www.journaldequebec.com/2022/01/08/un-souvenir-mille-remords-mont-joli-au-temps-de-la-guerre
+*8 janvier 2022* Un article de Marie-France Bornais dans le Journal de Québec. [Mont-Joli au temps de la guerre.](https://www.journaldequebec.com/2022/01/08/un-souvenir-mille-remords-mont-joli-au-temps-de-la-guerre)
 
 *13 octobre 2021*: [Entrevue accordée à Éric Barrette au sujet de mon roman Un souvenir, mille remords (7h46).](https://ici.radio-canada.ca/ohdio/premiere/emissions/info-reveil/episodes/576607/rattrapage-du-mercredi-13-octobre-2021)
 
