@@ -587,6 +587,9 @@ Saint-Pascal.
 
 # Concernant Marie Major:
 
+
+« Je suis une descendante de Antoine Roy dit Desjardins et de Marie Major : à la 3e génération, mes aïeuls sont Augustin et Jeanne Boucher Montbrun. J’ai adoré votre merveilleux livre – Marie Major – que j’ai donné en cadeau et qui fût très apprécié. Vous avez une magnifique plume, Madame. » Huguette Roy. 
+
 « J’ai dévoré vos livres. Ils sont écrits dans le style des grands écrivains, avec intelligence… pas de longueurs inutiles. Je lis et relis vos écrits. Ils me passionnent. Bravo.» Raymonde Talbot. Commentaire sur ma page Facebook du 22 juin 2022 dans laquelle j’annonçais la publication de l’édition spéciale 15e anniversaire de Marie Major. 
 
 « Being a direct descendant of Marie Major. Il was eager to read this novel. Il don’t speak or read French so I had it translated. Il was totally shocked, saddened & dismayed by Marie’s tragic life & fate. I would love to meet with you one day & discuss our ancestral heritage & discuss your novel. Congratulations on the 9th edition. The power & dynamic of Marie Major’s soul lives on. Injustice is timeless ! »Astrid Clements, commentaire sur ma page Facebook du 22 juin 2022 dans laquelle j’annonçais la publication de l’édition spéciale 15e anniversaire de Marie Major. 
