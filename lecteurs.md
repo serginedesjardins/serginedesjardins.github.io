@@ -394,6 +394,8 @@ tombée sur vous et vos livres. Je suis impatiente et j'ai vraiment hâte de lir
 Merci aussi de mettre du nouveau dans mon coffre à mots. Patibulaire, dame-jeanne, heur, à bas bruit, en deux coups de cuillères à pot...
 Je pars maintenant à la rencontre de Marie Major.» Marie-France Rioux.
 
+« Bonjour, je viens de terminer le premier tome de isa. Ce livre est magnifiquement bon, je l'ai dévoré. Merci beaucoup de nous faire connaitre ce petit bout de l'histoire. Très hâte de lire le deuxieme tome. » Maly Blais.
+
 
 # Concernant Robertine Barry:
 
