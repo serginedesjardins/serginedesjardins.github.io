@@ -6,6 +6,8 @@ permalink: /lecteurs/
 
 # Concernant Un souvenir, mille remords
 
+« Je viens terminer ''Un souvenir, mille remords''.  Votre livre m'a tellement touchée.  Votre écriture est merveilleuse.  J'ai vécu l'histoire à travers vos personnages.  Merci! » Diane Sauvageau.
+
 « Je m'appelle Marie et je suis cuisinière à la Résidence Mon chez-nous à Saint-Éloi. Je fais lire vos livres aux madames, et vous faites fureur. Objectif personnel: faire lire les monsieurs. Je vous tiens au courant. » Marie-France Rioux
 
 "Une fresque à nulle autre pareille, un tableau saisissant de libération de souvenirs cauchemardesques suites d'une guerre nazie, une retentissante bouffée vers HIER, une épopée brillamment soutenue de bouleversants témoignages d'ici et de France, voilà ce que je ressens après la lecture passionnée de Un souvenir, mille remords, émergé de ta plume puissante et libératrice, dans la lignée magistrale de Robertine Barry et Marie Major pour ne relever que ceux-là. Sergine, toute mon émotion à fleur de peau et ma gratitude pour ce tableau de guerre sorti des boules à mites ! Tout au long de ce récit, je me suis imaginée tantôt Rose et Dorothée, tantôt Kalinda Z 7400 et Sandrine, et plusieurs autres tels Onésime et Bérangère, Ariel et Inge, pour ne nommer que ceux-là. Ce retour après 29 ans devrait permettre une réhabilitation "nationale" autant au Québec qu'à Paris. Qu'on le veuille ou pas, les souvenirs d'une telle guerre ne se répercutent pas seulement sur les premiers blessés...des images parlent jusqu'à nous en 2021 ! C'est Sandrine qui est mon écho ! Sergine, tu me combles par tes écrits judicieux, ta plume alerte et juste, tes récits qui m'emportent au-delà de mon siècle et de mon pays ! Merci. » Irène Belleau.
