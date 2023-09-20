@@ -6,6 +6,8 @@ permalink: /lecteurs/
 
 # Concernant Un souvenir, mille remords
 
+« Je viens de lire Un souvenir, mille remords. Votre roman m'a bouleversé.  Je savais par mes lectures des choses sur la 2ième guerre mais je ne savais pas ce que vous avez écrit dans ce livre.  C'est un chef d'oeuvre et votre style est unique.  Merci de tout coeur d'exercer ce métier qui nous procure tant de bonnes lectures.  Merci encore. » Hélène Routhier, Gatineau, QC.
+
 « Je viens terminer ''Un souvenir, mille remords''.  Votre livre m'a tellement touchée.  Votre écriture est merveilleuse.  J'ai vécu l'histoire à travers vos personnages.  Merci! » Diane Sauvageau.
 
 « Je m'appelle Marie et je suis cuisinière à la Résidence Mon chez-nous à Saint-Éloi. Je fais lire vos livres aux madames, et vous faites fureur. Objectif personnel: faire lire les monsieurs. Je vous tiens au courant. » Marie-France Rioux
