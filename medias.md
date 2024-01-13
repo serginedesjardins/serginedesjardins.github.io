@@ -56,6 +56,20 @@ Article publié dans Le Journal de Québec, 28 mai 2017 : https://www.journaldeq
 
 # Critiques de Isa. L'île des exclus
 
+« En 1844 s'ouvrait un lazaret pour soigner les personnes atteintes de la lèpre sur l'île de Sheldrake au Nouveau-Brunswick. Les familles déchirées ont vu leurs parents, leurs enfants leur être enlevés pour être isolés dans ce lieu qui tenait bien plus de la prison que de l'hôpital. Parmi ces malheureux: Isa qui n'est pourtant pas touchée par la maladie, Isa qui vit en recluse... Parviendra-t-elle à retrouver ses soeurs Juliette et Fanny? Des personnages très attachants, un pan de l'Histoire du pays méconnu, des recherches impressionnantes: les clés pour un roman historique réussi ! » - [Chrystine Brouillet](https://tva.canoe.ca/emissions/salutbonjour/chroniques/sbwe/bouquineries/222921/chrystine-part-a-la-rencontre-des-lecteurs)
+
+« Sergine Desjardins déploie un talent incroyable pour nous plonger dans un univers glauque, dans lequel les superstitions ont la vie dure et la science peu de crédit !Les personnages romanesques à souhait rendent cette histoire épique et émouvante! » France Net Infos https://www.francenetinfos.com/offrez-des-romans-historiques-pour-noel-187147/
+
+« Auteure du roman primé Marie Major, Sergine Desjardins transporte les lecteurs sur l'île Sheldrake, au Nouveau-Brunswick, où des lépreux ont été déportés au milieu des années 1800. Le tome un de la série Isa, l'île des exclus, lève le voile sur une période très peu connue de notre histoire. (...) Sergine Desjardins, une écrivaine à la plume alerte et agréable, s'est beaucoup documentée sur les traitements médicaux de la lèpre à cette époque et a lu plusieurs biographies. » - Marie-France Bornais. Le Journal de Québec, dimanche
+25 mai 2014.
+
+« Isa, L’île des exclus est une saga absolument poignante dans laquelle il sera largement question de la petitesse d’âme et de coeur chez nombre de gens et inversement de la grandeur d’autres, un roman historique qui nous ramène en 1844, époque où la médecine et les croyances religieuses soupèsent les décisions au nom de tous, soi-disant pour le bien de tous, mais comme aujourd’hui telles décisions sont souvent motivées par les intérêts quels qu’ils soient des décideurs organisateurs des conditions de vie pour la majorité qui aideraient sans que cela paraisse à leur moyen personnel de faire fortune et tous les moyens sont bons quand les populations sont confiantes et ne se doutent pas des réseaux les plus crapuleux qui ont cours dans les plus belles résidences et sous les enseignes les plus nobles. » - [Jacqueline Mallette](http://montreal157.wordpress.com).
+
+« Sergine Desjardins plonge le lecteur au coeur d'une histoire bouleversante de courage et d'espoir qui lève le voile sur une page à la fois troublante et fascinante du passé. » - Romain Pelletier. La Voix de la Matanie. 4 juin 2014.
+
+« Cette série de deux romans de l'auteure de Marie Major se déroule sur une île où sont envoyés les lépreux. Isa, une adolescente, est envoyée sur cette île puisqu'on la soupçonne à tort d'avoir cette maladie. Ce roman est une histoire de courage et d'espoir." Suggestions de lectures pour les vacances d'été. » -
+[Pause Lecture juin 2014](http://www.pauselecture.net).
+
 
 " Sergine Desjardins, outre de raconter ce triste épisode historique, va en plus traiter d'autres sujets très importants et qui vont alléger quelque peu les passages durs et poignants. Ainsi tu vas faire la connaissance de la sœur aînée de Isa, Fanny.
 Fanny est partie chez la sœur de son père, Gus, chez sa tante Marjorie à Québec.
@@ -72,20 +86,6 @@ C'est une fiction basée sur des faits historiques réels.
 La lèpre est loin d'avoir disparu. Il y aurait de dix à quinze millions de lépreux dans le monde. (note de l'auteure)
 Connais-tu les Micmacs ? On en parle dans le récit par le biais de Charlotte, ils étaient ses ancêtres.
 Voici une définition : Les Micmacs, parfois appelés Mi'kmaq, sont un peuple amérindien de la côte nord-est d'Amérique, faisant partie des peuples algonquiens. Il y a aujourd'hui vingt-huit groupes distincts de cette ethnie au Canada, et un seul groupe ethnique, la « tribu d'Aroostock ». Souris et des livres, 4 décembre 2018 sur Babelio,  https://www.babelio.com/livres/Desjardins-Isa-tome-1--Lile-des-exclus/619303 
-
-« En 1844 s'ouvrait un lazaret pour soigner les personnes atteintes de la lèpre sur l'île de Sheldrake au Nouveau-Brunswick. Les familles déchirées ont vu leurs parents, leurs enfants leur être enlevés pour être isolés dans ce lieu qui tenait bien plus de la prison que de l'hôpital. Parmi ces malheureux: Isa qui n'est pourtant pas touchée par la maladie, Isa qui vit en recluse... Parviendra-t-elle à retrouver ses soeurs Juliette et Fanny? Des personnages très attachants, un pan de l'Histoire du pays méconnu, des recherches impressionnantes: les clés pour un roman historique réussi ! » - [Chrystine Brouillet](https://tva.canoe.ca/emissions/salutbonjour/chroniques/sbwe/bouquineries/222921/chrystine-part-a-la-rencontre-des-lecteurs)
-
-« Sergine Desjardins déploie un talent incroyable pour nous plonger dans un univers glauque, dans lequel les superstitions ont la vie dure et la science peu de crédit !Les personnages romanesques à souhait rendent cette histoire épique et émouvante! » France Net Infos https://www.francenetinfos.com/offrez-des-romans-historiques-pour-noel-187147/
-
-« Auteure du roman primé Marie Major, Sergine Desjardins transporte les lecteurs sur l'île Sheldrake, au Nouveau-Brunswick, où des lépreux ont été déportés au milieu des années 1800. Le tome un de la série Isa, l'île des exclus, lève le voile sur une période très peu connue de notre histoire. (...) Sergine Desjardins, une écrivaine à la plume alerte et agréable, s'est beaucoup documentée sur les traitements médicaux de la lèpre à cette époque et a lu plusieurs biographies. » - Marie-France Bornais. Le Journal de Québec, dimanche
-25 mai 2014.
-
-« Isa, L’île des exclus est une saga absolument poignante dans laquelle il sera largement question de la petitesse d’âme et de coeur chez nombre de gens et inversement de la grandeur d’autres, un roman historique qui nous ramène en 1844, époque où la médecine et les croyances religieuses soupèsent les décisions au nom de tous, soi-disant pour le bien de tous, mais comme aujourd’hui telles décisions sont souvent motivées par les intérêts quels qu’ils soient des décideurs organisateurs des conditions de vie pour la majorité qui aideraient sans que cela paraisse à leur moyen personnel de faire fortune et tous les moyens sont bons quand les populations sont confiantes et ne se doutent pas des réseaux les plus crapuleux qui ont cours dans les plus belles résidences et sous les enseignes les plus nobles. » - [Jacqueline Mallette](http://montreal157.wordpress.com).
-
-« Sergine Desjardins plonge le lecteur au coeur d'une histoire bouleversante de courage et d'espoir qui lève le voile sur une page à la fois troublante et fascinante du passé. » - Romain Pelletier. La Voix de la Matanie. 4 juin 2014.
-
-« Cette série de deux romans de l'auteure de Marie Major se déroule sur une île où sont envoyés les lépreux. Isa, une adolescente, est envoyée sur cette île puisqu'on la soupçonne à tort d'avoir cette maladie. Ce roman est une histoire de courage et d'espoir." Suggestions de lectures pour les vacances d'été. » -
-[Pause Lecture juin 2014](http://www.pauselecture.net).
 
 « Premier tome d’un diptyque historique prenant, L’île des exclus tiendra les lecteurs en haleine du début à la fin puisque profondément attachés à Isa, ils la suivront dans son dangereux et injuste périple. » - [Christiane Dubreuil](https://info-culture.biz)
 
