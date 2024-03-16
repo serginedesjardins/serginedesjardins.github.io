@@ -6,6 +6,8 @@ permalink: /medias/
 
 # Entrevues
 
+*8 mars 2023 :  téléjournal Céline Galipeau, entrevue au sujet de Robertine Barry : https://ici.radio-canada.ca/info/videos/1-8741609/une-pionniere-honoree
+
 *11 mars 2023*: [Entrevue avec Isabelle Craig, émission Lève-tôt, Radio-Canada.](https://sergine-desjardins.com/files/2023-03-11-Isabelle-Craig.mp3)
 
 *Octobre 2022*: [Un article de Maurice Gagnon dans la revue Le Bel âge.](https://lebelage.ca/entre-nous/temoignages/jecris-la-vie-de-mes-ancetres/)
