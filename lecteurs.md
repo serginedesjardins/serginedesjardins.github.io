@@ -223,6 +223,12 @@ J’ai travaillé à Ottawa dans une librairie durant 25 ans et l’on me demand
 
 # Concernant Le Châtiment de Clara:
 
+" Je viens de terminer "The Chatiment de Clara" par Sergine Desjardins Il n'est disponible qu'en français et en kindle aux États-Unis. Ma sœur a demandé à son ami en Colombie-Britannique de commander le roman pour moi et de l'apporter à Seattle d'où ma sœur me l'a envoyé par la poste. Ce processus a pris un mois.
+Le roman se déroule à Paris du XVIIe siècle et concerne un procès anticipé pour viol. Il contient des informations sur le système judiciaire, le système de la peine capitale, le domaine de la médecine et La Salpetriere, le bras féminin de l'hôpital général.
+C'est un exposé du système juridique français du XVIIe siècle et de son incapacité à traiter le viol d'une femme mariée et de la croyance actuelle selon laquelle la conception était une preuve de consentement. Le roman montre aussi les effets du stress post-traumatique sur les victimes de viols des siècles avant même que les gens sachent ce que c'était. C'est une lecture inconfortable, viscérale, mais importante.
+Bravo Desjardins de nous avoir donné un aperçu immersif du passé pour nous aider à voir le présent dans son contexte et qu'il y a plus de travail à faire. Votre roman m'a coupé le souffle dans l'indignation sur les conditions et les lois de nos ancêtres.
+Dans les près de 350 ans qui se sont écoulés depuis le décor de ce roman, en pensant à la pub de Virginia Slims, avons-nous fait du chemin"Charlotte Bushroe
+
 "Bonjour Sergine Desjardins! Je viens de terminer la lecture de votre roman: Le châtiment de Clara.Je suis très contente de pouvoir vous dire mon émerveillement à cette lecture. La profondeur des idées, l'intrigue, la riche documentation sur la vie quotidienne au 17e siècle, TOUT ce livre a concouru à mon bonheur. Je me dois de vous dire que j'ai lu tard dans la nuit. Il n'est pas exagéré de vous dire que j'ai dévoré votre roman. Merci de l'avoir écrit!" Suzanne Larocque, commentaire mis sur ma page Facebook, le 9 février 2019.
 
 « J’ai terminé la lecture de ton roman «Le châtiment de Clara». Vraiment, tu as un talent remarquable pour ficeler une histoire qui nous tienne en haleine du début à la fin, doublé d’un réel talent de pédagogue. J’aime acquérir des connaissance à travers mes lectures et avoir l’opportunité de nourrir ma réflexion, ce que tu offres généreusement par l’imposante recherche qui appuie en général tes romans.» Yvonnick Roy.
