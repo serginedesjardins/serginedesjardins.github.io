@@ -6,9 +6,10 @@ permalink: /dis/
 
 <img src='../images/prixartiste.jpg' alt='photo'>
 
-*** En septembre 2024, lors du trentième anniversaire de fondation de l'Association des Familles Roy, j’ai été nommée au Temple de la Renommée aux côtés de l’hématologue-oncologue et chercheur Denis-Claude Roy ainsi que des fondateurs des Caisses pop : Dorimène et Alphonse Desjardins.
 
-**2019**: [Figure parmi les 50 diplômés de l'UQAR dont le parcours est jugé remarquable.](https://fr.calameo.com/books/000879539931cf2b0f894)
+**2024** Lors du trentième anniversaire de fondation de l'Association des Familles Roy, j’ai été nommée au Temple de la Renommée aux côtés de l’hématologue-oncologue et chercheur Denis-Claude Roy ainsi que des fondateurs des Caisses pop : Dorimène et Alphonse Desjardins.
+
+2019**: [Figure parmi les 50 diplômés de l'UQAR dont le parcours est jugé remarquable.](https://fr.calameo.com/books/000879539931cf2b0f894)
 
 **2015**: Lauréate, prix artiste Ville de Rimouski.
 
