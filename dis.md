@@ -6,6 +6,7 @@ permalink: /dis/
 
 <img src='../images/prixartiste.jpg' alt='photo'>
 
+<img src='../images/trio.png' alt='trio'>
 
 **2024** Lors du trentième anniversaire de fondation de l'Association des Familles Roy, j’ai été nommée au Temple de la Renommée aux côtés de l’hématologue-oncologue et chercheur Denis-Claude Roy ainsi que des fondateurs des Caisses pop : Dorimène et Alphonse Desjardins.
 
