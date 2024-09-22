@@ -6,6 +6,12 @@ permalink: /agenda/
 
 # Calendrier des activités. 
 
+## 2024 : 
+
+29 septembre 2024 à 14 :30 h : Conférence Les Filles du Roi. Lieu : Résidence L’entre-Gens. Saint-Ulric. 
+
+21 septembre, 15 :30 h : Participation à la Table ronde L’histoire des ancêtres Roy dit Desjardins lors du 30e anniversaire de fondation de l’Association des Familles Roy d’Amérique. Lieu et heure : salle du juvénat Notre-Dame de Lévis, 14 heures.
+
 ## 2022: 
 
 11 mai : Conférence via Zoom : Le thème : Robertine Barry (je parlerai des difficultés auxquelles a été confrontée cette première femme journaliste au 19e siècle et, plus brièvement, de celles que d'autres femmes journalistes ont connues ensuite). Hôte : Conseil central du Bas Saint-Laurent.
