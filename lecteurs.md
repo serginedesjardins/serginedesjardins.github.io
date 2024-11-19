@@ -601,6 +601,10 @@ Saint-Pascal.
 
 # Concernant Marie Major:
 
+"Je viens de terminer une œuvre littéraire qui m'a apprise autant qu'un cours d'histoire sur les débuts de notre colonie.  Je pense qu'il fallait que je vous en parle car c'est pour moi un travail de recherche intense que Madame Sergine Desjardins a réalisé avec son roman biographique (Marie Major). J'en suis encore bouleversée par ce que j'y ai appris. Bien sur, ce n'est pas une œuvre littéraire récente(2006) mais je pense que tous ceux qui s'intéressent à nos débuts de colonisation devraient consulter ce bouquin. Lire Madame Sergine Desjardins est toujours pour moi un immense plaisir car je sais que rien n'est laissé au hasard dans son travail. C'est une bûcheuse cette frêle dame et comme toujours, ces récits sont passionnants.  Merci à vous Sergine Desjardins pour votre magnifique travail🌺❤  Jocelyne Dubeau, autrice.
+
+"Hier et aujourd'hui j'ai relu Marie Major. Ce doit être la 3eme fois que je le lis depuis que je l'ai acquis il y a quelques années.
+Sergine Desjardins C'est toujours un grand plaisir de lire des livres bien écrits et bien documentés. J'ai justement un penchant pour les histoires vécues, et j'aime tout ce qui concerne la Nouvelle France, ayant moi-même effectué des recherches historiques, il y a quelques années, sur les migrants partis de France pour la Nouvelle France." Ginette Marie Aguiard-Nicollet
 
 « Je suis une descendante de Antoine Roy dit Desjardins et de Marie Major : à la 3e génération, mes aïeuls sont Augustin et Jeanne Boucher Montbrun. J’ai adoré votre merveilleux livre – Marie Major – que j’ai donné en cadeau et qui fût très apprécié. Vous avez une magnifique plume, Madame. » Huguette Roy. 
 
