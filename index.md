@@ -6,7 +6,7 @@ permalink: /
 
 <div style='float:right; padding: 10px; font-size: 0.8em; text-align: center'>
   <img style="padding-bottom:0.5em;" src="images/2016-08-07 07.30.31-small.jpg" alt='photo'><br/>
-  <p>Photo prise en août 2016.</p>
+  <p>Sergine Desjardins en 2016.</p>
 </div>
 
 Ayant quitté l'école à l'âge de 16 ans, j'ai pratiqué divers métiers avant de retourner aux études et de compléter une maîtrise en éthique. J'ai ensuite été assistante de recherche, puis j'ai fondé et dirigé un organisme de parrainage pour les jeunes. À titre de pigiste, j'ai rédigé plusieurs articles pour divers magazines, ainsi que pour un quotidien. J'ai aussi écrit des biographies familiales et collaboré à deux ouvrages collectifs, *Perspectives éthiques sur la condition des femmes* et *Chaperon Blues*. Je suis aussi l'auteure d'un essai, *Médecins & Sages-femmes. Les enjeux d'un débat qui n'en finit plus*.
