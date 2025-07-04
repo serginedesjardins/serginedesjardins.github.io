@@ -6,6 +6,10 @@ permalink: /lecteurs/
 
 # Concernant Un souvenir, mille remords
 
+
+Bonjour, Un petit mot pour vous dire que je viens de terminer "Un souvenir, mille remords" il y a quelques minutes. Ce livre m'a beaucoup touchée. L'amour et le respect que vous avez pour les gens et les animaux transparaît dans vos écrits. Même si certains passages étaient difficiles à lire, il ne faut pas oublier ce qui s'est vécu lors de cette guerre. Merci pour ce roman que j'ai dévoré. Je vous souhaite une belle soirée!  Line Lefrancois
+
+
 « Magnifique et magique Sergine qui sait s'installer dans les alcôves de notre cerveau dès qu'on parcourt son univers littéraire. » Hélène Parent.
 
 « Je viens de lire Un souvenir, mille remords. Votre roman m'a bouleversé.  Je savais par mes lectures des choses sur la 2ième guerre mais je ne savais pas ce que vous avez écrit dans ce livre.  C'est un chef d'oeuvre et votre style est unique.  Merci de tout coeur d'exercer ce métier qui nous procure tant de bonnes lectures.  Merci encore. » Hélène Routhier, Gatineau, QC.
