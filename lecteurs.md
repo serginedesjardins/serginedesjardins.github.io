@@ -7,7 +7,7 @@ permalink: /lecteurs/
 # Concernant Un souvenir, mille remords
 
 
-Bonjour, Un petit mot pour vous dire que je viens de terminer "Un souvenir, mille remords" il y a quelques minutes. Ce livre m'a beaucoup touchée. L'amour et le respect que vous avez pour les gens et les animaux transparaît dans vos écrits. Même si certains passages étaient difficiles à lire, il ne faut pas oublier ce qui s'est vécu lors de cette guerre. Merci pour ce roman que j'ai dévoré. Je vous souhaite une belle soirée!  Line Lefrancois
+Bonjour, Un petit mot pour vous dire que je viens de terminer "Un souvenir, mille remords" il y a quelques minutes. Ce livre m'a beaucoup touchée. L'amour et le respect que vous avez pour les gens et les animaux transparaît dans vos écrits. Même si certains passages étaient difficiles à lire, il ne faut pas oublier ce qui s'est vécu lors de cette guerre. Merci pour ce roman que j'ai dévoré. Je vous souhaite une belle soirée!  Line Lefrançois.
 
 
 « Magnifique et magique Sergine qui sait s'installer dans les alcôves de notre cerveau dès qu'on parcourt son univers littéraire. » Hélène Parent.
