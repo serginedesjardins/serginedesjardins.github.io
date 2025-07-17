@@ -605,6 +605,16 @@ Saint-Pascal.
 
 # Concernant Marie Major:
 
+« Bonjour Sergine ! En tournant la dernière page de l’offrande consacrée à votre ancêtre Marie Major, deux idées me viennent immédiatement à l’esprit : votre roman est PUISSANT et votre écriture si MAGISTRALE et tellement évocatrice qu’on a l’impression de vivre la Nouvelle-France en même temps que vos personnages. 
+Non seulement votre œuvre repose-t-elle sur une riche et solide documentation ; j’oserais même dire que votre roman historique recoupe quasiment une étude de mœurs, des us et coutumes qui prévalaient en Neuve-France, ce qui ajoute crédit et force à votre récit.
+Votre style romanesque, les mots que vous utilisez, justes et précis, voire recherchés, les descriptions que vous faites de vos personnages et des lieux sont si détaillés qu’ils nous suggèrent aussitôt les images en tête. On se sent littéralement transporté aux débuts de la colonie.
+Tout au long du roman, vous nous décrivez avec un doigté sans pareil toute la structure sociodémographique de ces temps anciens. Le Conseil souverain, les bourgeois – juges, baillis, etc. – l’Église catholique et les sulpiciens, les gens de métier – tonnelier, marchands et autres –, enfin les gens pauvres.
+Ce qui m’a captivé le plus dans votre livre c’est toute l’humanité que vous restituez à vos personnages. Vous portez une attention particulière à nous faire comprendre leur tempérament, leur caractère, leurs penchants, leurs vices, leurs désirs, leurs aspirations, leurs souffrances aussi. À mon humble avis, c’est en cela que réside la puissance de votre roman-vérité. 
+Toute cette humanité lumineuse que vous nous donnez à voir de votre Marie Major, véritable héroïne du livre, nous touche au plus profond de l’âme. Cette femme courageuse, soumise à l’opprobre des lois inquisitoriales de son temps, a dû peiner toute sa vie pour regagner sa dignité. Les pages où Marie se fait mendiante dans les rues de Québec, désespérée et ne sachant où aller, sont très émouvantes. 
+En résumé, j’ai adoré lire votre Marie Major, tout en m’instruisant des mœurs, des us et coutumes de cette époque. 
+Normand Martin. »
+
+
 "Je viens de terminer une œuvre littéraire qui m'a apprise autant qu'un cours d'histoire sur les débuts de notre colonie.  Je pense qu'il fallait que je vous en parle car c'est pour moi un travail de recherche intense que Madame Sergine Desjardins a réalisé avec son roman biographique (Marie Major). J'en suis encore bouleversée par ce que j'y ai appris. Bien sur, ce n'est pas une œuvre littéraire récente(2006) mais je pense que tous ceux qui s'intéressent à nos débuts de colonisation devraient consulter ce bouquin. Lire Madame Sergine Desjardins est toujours pour moi un immense plaisir car je sais que rien n'est laissé au hasard dans son travail. C'est une bûcheuse cette frêle dame et comme toujours, ces récits sont passionnants.  Merci à vous Sergine Desjardins pour votre magnifique travail🌺❤  Jocelyne Dubeau, autrice.
 
 "Hier et aujourd'hui j'ai relu Marie Major. Ce doit être la 3eme fois que je le lis depuis que je l'ai acquis il y a quelques années.
