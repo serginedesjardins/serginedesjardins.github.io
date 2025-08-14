@@ -614,6 +614,7 @@ Toute cette humanité lumineuse que vous nous donnez à voir de votre Marie Majo
 En résumé, j’ai adoré lire votre Marie Major, tout en m’instruisant des mœurs, des us et coutumes de cette époque. 
 Normand Martin. »
 
+" Juste un petit mot pour vous dire que je vient de finir la lecture de Marie Major que j'ai dévoré presque tout d'un trait tant j'ai trouvé ça captivant." Gilles Racette.
 
 "Je viens de terminer une œuvre littéraire qui m'a apprise autant qu'un cours d'histoire sur les débuts de notre colonie.  Je pense qu'il fallait que je vous en parle car c'est pour moi un travail de recherche intense que Madame Sergine Desjardins a réalisé avec son roman biographique (Marie Major). J'en suis encore bouleversée par ce que j'y ai appris. Bien sur, ce n'est pas une œuvre littéraire récente(2006) mais je pense que tous ceux qui s'intéressent à nos débuts de colonisation devraient consulter ce bouquin. Lire Madame Sergine Desjardins est toujours pour moi un immense plaisir car je sais que rien n'est laissé au hasard dans son travail. C'est une bûcheuse cette frêle dame et comme toujours, ces récits sont passionnants.  Merci à vous Sergine Desjardins pour votre magnifique travail🌺❤  Jocelyne Dubeau, autrice.
 
