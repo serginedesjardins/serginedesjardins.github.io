@@ -4,7 +4,7 @@ title: Médias
 permalink: /medias/
 ---
 
-# Entrevues
+# Quelques-unes des entrevues que j'ai accordées : 
 
 *11 mars 2023*: [Entrevue avec Isabelle Craig, émission Lève-tôt, Radio-Canada.](https://sergine-desjardins.com/files/2023-03-11-Isabelle-Craig.mp3)
 
