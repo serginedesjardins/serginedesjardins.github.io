@@ -7,6 +7,8 @@ permalink: /lecteurs/
 # Concernant Un souvenir, mille remords
 
 
+
+
 « Bonjour, Un petit mot pour vous dire que je viens de terminer "Un souvenir, mille remords" il y a quelques minutes. Ce livre m'a beaucoup touchée. L'amour et le respect que vous avez pour les gens et les animaux transparaît dans vos écrits. Même si certains passages étaient difficiles à lire, il ne faut pas oublier ce qui s'est vécu lors de cette guerre. Merci pour ce roman que j'ai dévoré. Je vous souhaite une belle soirée!  Line Lefrançois.»
 
 
@@ -228,6 +230,9 @@ J’ai travaillé à Ottawa dans une librairie durant 25 ans et l’on me demand
 
 
 # Concernant Le Châtiment de Clara:
+
+« Sergine, je ne veux pas t’encenser, mais de un, tu sais très bien raconter une histoire. Et de deux, tout le travail historique qu’il y a derrière tes romans, c’est à mes yeux extraordinaire et très éthique si je peux prendre un terme que tu connais bien. Tes notes en bas de page ou encore tes notes à la fin de tes livres complètent très bien tes « romans historiques ». Oui, nous sommes dans un roman, mais nous sommes principalement dans des histoires vécues que ce soit celles de Clara ou Isa. J’avais lu Marie Major, la bio de Robertine Barry, celui dont j’oublie le nom mais qui a trait à la dernière guerre et l’école de bombardement et de tir de Mont-Joli. Mais Isa et Clara sont plus frais à ma mémoire bien sûr et je sais que je me redis mais quel travail, quel talent et quelle honnêteté de ta part Sergine. Voilà, chère Sergine, ton travail m’a entrainée dans des mondes à peu près inconnus de moi. L’autre chose que j’ai aimé, c’est, comme je te connais un peu, de ressentir, si je peux dire, ton exigeant « travail d’écrivaine ». Je suis contente de ce côté, réaliser cette préparation et la mise en œuvre d’ouvrages comme tu le fais si bien. Alors, merci. Tu as bien nourri mon esprit et mon âme. Douloureux ces vécus, mais bien réels dans l’histoire. Je comprends aussi que ta maîtrise en éthique t’a surement aidé à clarifier tes valeurs et probablement à les vivre par ton écriture. Je termine avec l’expression « faire œuvre utile » dans son sens le plus grand. Merci d’être là, avec toute ton Humanité. » Rose-Marie Gallagher.
+<img width="432" height="313" alt="image" src="https://github.com/user-attachments/assets/621a67f5-fb64-4401-9227-3675bba62768" />
 
 " Je viens de terminer "The Chatiment de Clara" par Sergine Desjardins Il n'est disponible qu'en français et en kindle aux États-Unis. Ma sœur a demandé à son ami en Colombie-Britannique de commander le roman pour moi et de l'apporter à Seattle d'où ma sœur me l'a envoyé par la poste. Ce processus a pris un mois.
 Le roman se déroule à Paris du XVIIe siècle et concerne un procès anticipé pour viol. Il contient des informations sur le système judiciaire, le système de la peine capitale, le domaine de la médecine et La Salpetriere, le bras féminin de l'hôpital général.
